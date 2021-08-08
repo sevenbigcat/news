@@ -1,3 +1,4 @@
+# ['Do people realize I nearly died?'](./20210808222247)
 # [Texas COVID guidance for schools stuns medical experts](./20210808074749)
 # [Deputy ODs after fentanyl exposure during arrest](./20210807175554)
 # [Scientist: Ice Age lion cub in 'near-perfect condition'](./20210807142903)
