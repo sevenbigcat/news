@@ -1,3 +1,4 @@
+# [Your paycheck may shrink if you refuse a COVID shot](./20210810210046)
 # [Honolulu offers $2.5K to fly there in hopes you'll stay](./20210810074008)
 # [Tearful Messi confirms rumor: 'I have to say goodbye'](./20210809072355)
 # ['Do people realize I nearly died?'](./20210808222247)
