@@ -1,3 +1,4 @@
+# [Tempers flare in Washington as Taliban advance](./20210816162339)
 # [Biden was in hot water over 9/11, but FBI may soon act](./20210811093803)
 # [Your paycheck may shrink if you refuse a COVID shot](./20210810210046)
 # [Honolulu offers $2.5K to fly there in hopes you'll stay](./20210810074008)
