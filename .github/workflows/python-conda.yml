@@ -43,10 +43,8 @@ jobs:
       run: |
         stamp=$(cat stamp.txt)
         if [[ "$stamp" != "" ]]; then
-          git add $stamp
-          git add titles.txt
-          git add README.md
-       fi
+           echo stamp=$stamp
+        fi
 
 
 
