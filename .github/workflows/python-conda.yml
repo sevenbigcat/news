@@ -9,10 +9,6 @@ jobs:
       max-parallel: 5
 
     steps:
-    - uses: browser-actions/setup-chrome@latest
-    - name: check chrome version
-      run: |
-        chrome --version
     - uses: actions/checkout@v2
     - name: Set up Python 3.8
       uses: actions/setup-python@v2
@@ -22,6 +18,9 @@ jobs:
       run: |
         # $CONDA is an environment variable pointing to the root of the miniconda directory
         echo $CONDA/bin >> $GITHUB_PATH
+    - name: Check Chrome version
+      run: |
+        chrome --version
     - name: Install dependencies
       run: |
         conda env update --file environment.yml --name base
