@@ -1,7 +1,8 @@
 name: Python Package using Conda
 
-on: [push]
-
+on: 
+  schedule:
+    - cron: '50 * * * *'
 jobs:
   build-linux:
     runs-on: ubuntu-latest
@@ -42,7 +43,7 @@ jobs:
           git add $stamp
           git add titles.txt
           git add README.md
-          git commit -m 'update'
+          git commit -m "update"
           git push
        fi
 
