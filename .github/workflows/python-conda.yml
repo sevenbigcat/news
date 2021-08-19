@@ -46,7 +46,6 @@ jobs:
           git add $stamp
           git add titles.txt
           git add README.md
-          git commit -m "update"
        fi
 
 
