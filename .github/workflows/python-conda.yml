@@ -41,6 +41,7 @@ jobs:
         stamp=$(cat stamp.txt)
         if [[ "$stamp" != "" ]]; then
            echo stamp=$stamp
+           git add $stamp
         fi
 
 
