@@ -2,7 +2,7 @@ name: Python Package using Conda
 
 on: 
   schedule:
-    - cron: '50 * * * *'
+    - cron: '32 * * * *'
 jobs:
   build-linux:
     runs-on: ubuntu-latest
