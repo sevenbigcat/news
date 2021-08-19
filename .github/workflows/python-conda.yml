@@ -46,7 +46,7 @@ jobs:
            git add $stamp
            git add titles.txt
            git add README.md
-           git commit -m "commit back from workflow"
+           git commit -m "commit back from workflow @$stamp"
            git push
         fi
 
