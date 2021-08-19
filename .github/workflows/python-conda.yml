@@ -9,6 +9,10 @@ jobs:
       max-parallel: 5
 
     steps:
+    - uses: browser-actions/setup-chrome@latest
+    - name: check chrome version
+      run: |
+        chrome --version
     - uses: actions/checkout@v2
     - name: Set up Python 3.8
       uses: actions/setup-python@v2
