@@ -11,8 +11,6 @@ jobs:
 
     steps:
     - uses: actions/checkout@v2
-      with:
-        token: ${{ secrets.repo }}
     - name: Set up Python 3.8
       uses: actions/setup-python@v2
       with:
@@ -39,6 +37,9 @@ jobs:
         cat stamp.txt
         ls -l
     - name: Commit updates
+      uses: actions/checkout@v2
+      with:
+        token: ${{ secrets.repo }}
       run: |
         stamp=$(cat stamp.txt)
         if [[ "$stamp" != "" ]]; then
