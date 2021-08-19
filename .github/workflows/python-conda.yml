@@ -26,11 +26,11 @@ jobs:
     - name: Install dependencies
       run: |
         conda env update --file environment.yml --name base
-    - name: Lint with flake8
+    - name: Grab news from Yahoo
       run: |
         python --version
         python grab.py
-    - name: Test with pytest
+    - name: Commit files back to repo
       run: |
-        conda install pytest
-        pytest
+        git status
+        ls -l
