@@ -1,0 +1,3 @@
+name: yahoo-news-conda-env
+dependencies:
+  - selenium=3.141.*
