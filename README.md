@@ -1,3 +1,4 @@
+# [Biden calls out governors over school mask mandates](./20210819112412)
 # [Tempers flare in Washington as Taliban advance](./20210816162339)
 # [Biden was in hot water over 9/11, but FBI may soon act](./20210811093803)
 # [Your paycheck may shrink if you refuse a COVID shot](./20210810210046)
