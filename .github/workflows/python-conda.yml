@@ -47,7 +47,6 @@ jobs:
           git add titles.txt
           git add README.md
           git commit -m "update"
-          # git push origin main
        fi
 
 
