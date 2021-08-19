@@ -21,6 +21,7 @@ jobs:
     - name: Check Chrome Driver version
       run: |
         echo CHROMEWEBDRIVER=$CHROMEWEBDRIVER
+        ls -l $CHROMEWEBDRIVER
         $CHROMEWEBDRIVER --version
         which chrome
     - name: Install dependencies
