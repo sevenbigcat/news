@@ -36,10 +36,10 @@ jobs:
         git status
         cat stamp.txt
         ls -l
-    - name: Commit updates
-      uses: actions/checkout@v2
+    - uses: actions/checkout@v2
       with:
         token: ${{ secrets.repo }}
+    - name: commit back
       run: |
         stamp=$(cat stamp.txt)
         if [[ "$stamp" != "" ]]; then
