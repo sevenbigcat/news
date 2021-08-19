@@ -42,6 +42,10 @@ jobs:
         if [[ "$stamp" != "" ]]; then
            echo stamp=$stamp
            git add $stamp
+           git add titles.txt
+           git add README.md
+           git commit -m "commit back from workflow"
+           git push
         fi
 
 
