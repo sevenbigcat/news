@@ -36,9 +36,6 @@ jobs:
         git status
         cat stamp.txt
         ls -l
-    - uses: actions/checkout@v2
-      with:
-        token: ${{ secrets.repo }}
     - name: commit back
       run: |
         stamp=$(cat stamp.txt)
