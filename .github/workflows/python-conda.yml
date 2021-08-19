@@ -22,7 +22,7 @@ jobs:
       run: |
         echo CHROMEWEBDRIVER=$CHROMEWEBDRIVER
         $CHROMEWEBDRIVER/chromedriver --version
-        curl https://www.yahoo.com
+        echo $PATH | tr ':' '\n'
         which chrome
     - name: Install dependencies
       run: |
