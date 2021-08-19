@@ -39,6 +39,9 @@ jobs:
       run: |
         stamp=$(cat stamp.txt)
         if [[ "$stamp" != "" ]]; then
+           git config --global user.email "you@example.com"
+           git config --global user.name "Your Name"
+
            echo stamp=$stamp
            git add $stamp
            git add titles.txt
