@@ -1,3 +1,4 @@
+# [Unvaccinated Americans point fingers at vaccinated](./20210820055836)
 # ['Redneck Riviera' emerges as a new COVID hotspot](./20210819115854)
 # [Trump family friend who got presidential pardon arrested](./20210819095846)
 # [Trump family friend who got presidential pardon arrested](./20210819150357)
