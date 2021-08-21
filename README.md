@@ -1,3 +1,4 @@
+# [State gives schools 48 hours to reverse mask mandates](./20210821115832)
 # [Catholic officials on edge after Grindr reports](./20210821055836)
 # [Richards out at 'Jeopardy!' 9 days after being named host](./20210820175840)
 # [Unvaccinated Americans point fingers at vaccinated](./20210820055836)
