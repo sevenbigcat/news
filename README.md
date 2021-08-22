@@ -1,3 +1,4 @@
+# [Radio host dies of COVID, regretting vaccine skepticism](./20210822115901)
 # [FDA: 'You are not a cow. Seriously, y'all. Stop it.'](./20210821235841)
 # [State gives schools 48 hours to reverse mask mandates](./20210821115832)
 # [Catholic officials on edge after Grindr reports](./20210821055836)
