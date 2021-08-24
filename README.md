@@ -1,3 +1,4 @@
+# [Does a demographic shift favor Democrats or GOP?](./20210824175842)
 # [Governor tells tourists to stay home amid COVID surge](./20210824055852)
 # [Proud Boys leader sentenced for burning BLM banner](./20210823235847)
 # [Far-right and leftist groups come to blows in Portland](./20210823175902)
