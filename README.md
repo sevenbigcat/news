@@ -1,3 +1,4 @@
+# [The only state where COVID deaths are higher than ever](./20210825115855)
 # [SCOTUS: Biden must reinstate Trump immigration policy](./20210825055847)
 # [A sheriff grapples with the grim reality of finding bodies](./20210824235836)
 # [Does a demographic shift favor Democrats or GOP?](./20210824175842)
