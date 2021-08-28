@@ -1,3 +1,4 @@
+# ['I started picking up whoever I could': Helicopter pilot](./20210828235852)
 # [Military officials update death toll in U.S. drone strike](./20210828175852)
 # [RFK's assassin, Sirhan Sirhan, granted parole in Calif.](./20210828115854)
 # [U.S. retaliates with drone attack after Kabul bombing](./20210828055841)
