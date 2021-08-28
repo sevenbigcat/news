@@ -1,3 +1,4 @@
+# [RFK's assassin, Sirhan Sirhan, granted parole in Calif.](./20210828115854)
 # [U.S. retaliates with drone attack after Kabul bombing](./20210828055841)
 # [U.S. special ops vets complete daring rescue mission](./20210827115901)
 # ['What we saw today is just the beginning': McMaster](./20210827055859)
