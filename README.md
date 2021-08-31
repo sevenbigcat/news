@@ -1,3 +1,4 @@
+# [Fla. creates 'artificial decline' in recent COVID deaths](./20210831175855)
 # [TV reporter confronted on air during Ida coverage](./20210830235845)
 # [A worrying statistic for those who are unvaccinated](./20210830115851)
 # [Landlord slams ruling: We already sold our house](./20210829235849)
