@@ -1,3 +1,4 @@
+# [New charge against ex-officer in Daunte Wright death](./20210903115852)
 # [What the largest study of masks yet reveals](./20210902175836)
 # [SCOTUS refuses to block Texas abortion ban](./20210902055853)
 # [Footage quashes viral claim about Biden](./20210901235915)
