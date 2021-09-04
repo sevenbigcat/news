@@ -1,3 +1,4 @@
+# [There's a new variant. How worried should we be?](./20210904175837)
 # [What killed an adventurous family out for a hike?](./20210903235849)
 # [New charge against ex-officer in Daunte Wright death](./20210903115852)
 # [What the largest study of masks yet reveals](./20210902175836)
