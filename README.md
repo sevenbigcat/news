@@ -1,3 +1,4 @@
+# [What ensued when GOP pol visited Calif. homeless camp](./20210909175853)
 # [Chaotic scene forces Calif. GOP candidate to flee](./20210909055851)
 # [What you need to know about the deadly Nipah virus](./20210908115902)
 # [Mexico's Supreme Court makes historic abortion ruling](./20210908055846)
