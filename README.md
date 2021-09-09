@@ -1,3 +1,4 @@
+# [ESPN reporter won't get vaccine, won't work games](./20210909235838)
 # [What ensued when GOP pol visited Calif. homeless camp](./20210909175853)
 # [Chaotic scene forces Calif. GOP candidate to flee](./20210909055851)
 # [What you need to know about the deadly Nipah virus](./20210908115902)
