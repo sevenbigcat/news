@@ -1,3 +1,4 @@
+# [Dr. Phil responds to excuses for not getting vaccinated](./20210910235845)
 # [Ticket agent who aided Sept. 11 hijackers finds forgiveness](./20210910175835)
 # [Guilt-tortured ticket agent who aided Sept. 11 hijackers](./20210910115843)
 # [ESPN reporter won't get vaccine despite mandate](./20210910055904)
