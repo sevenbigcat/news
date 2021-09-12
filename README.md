@@ -1,3 +1,4 @@
+# [New evidence raises doubts about U.S. version of strike](./20210912115836)
 # [Secretive program started on Trump's last day ends](./20210912055853)
 # [Photographer still searching for his 9/11 'guardian angel'](./20210911235855)
 # [Fighter pilot's would-be 9/11 suicide mission](./20210911115834)
