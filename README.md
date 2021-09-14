@@ -1,3 +1,4 @@
+# [Kremlin reveals Putin is going into self-isolation](./20210914115855)
 # [With Newsom victory, Dems look to win COVID war](./20210914055902)
 # [Couple dies of COVID, leaving 5 kids behind](./20210913175844)
 # [Madonna, 63, flaunts assets in cheeky VMAs outfit](./20210913115858)
