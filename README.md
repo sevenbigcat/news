@@ -1,3 +1,4 @@
+# [Norm Macdonald, 'SNL' alum and influential comic, dies](./20210914235832)
 # [Kremlin reveals Putin is going into self-isolation](./20210914115855)
 # [With Newsom victory, Dems look to win COVID war](./20210914055902)
 # [Couple dies of COVID, leaving 5 kids behind](./20210913175844)
