@@ -1,3 +1,4 @@
+# [Bid to oust Newsom soundly defeated](./20210915055838)
 # [Norm Macdonald, 'SNL' alum and influential comic, dies](./20210914235832)
 # [Kremlin reveals Putin is going into self-isolation](./20210914115855)
 # [With Newsom victory, Dems look to win COVID war](./20210914055902)
