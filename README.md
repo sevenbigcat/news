@@ -1,3 +1,4 @@
+# [Biden's child tax credit sways Republican voters](./20210915235907)
 # [Case of mom charged with neglect could set precedent](./20210915175853)
 # [She documented her trip on YouTube. Now she's gone.](./20210915115855)
 # [Bid to oust Newsom soundly defeated](./20210915055838)
