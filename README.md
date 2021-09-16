@@ -1,3 +1,4 @@
+# [State takes over the U.S. lead in new COVID cases](./20210916115856)
 # [Surge makes state the leader in new COVID cases](./20210916055854)
 # [Biden's child tax credit sways Republican voters](./20210915235907)
 # [Case of mom charged with neglect could set precedent](./20210915175853)
