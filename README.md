@@ -1,3 +1,4 @@
+# [Retired general defends Mark Milley on Fox News](./20210916175854)
 # [State takes over the U.S. lead in new COVID cases](./20210916115856)
 # [Surge makes state the leader in new COVID cases](./20210916055854)
 # [Biden's child tax credit sways Republican voters](./20210915235907)
