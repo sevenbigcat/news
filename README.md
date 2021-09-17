@@ -1,3 +1,4 @@
+# [Pro-impeachment Republican won't seek re-election](./20210917055901)
 # [Trump sees protest as a setup to be used against him](./20210916235849)
 # [Retired general defends Mark Milley on Fox News](./20210916175854)
 # [State takes over the U.S. lead in new COVID cases](./20210916115856)
