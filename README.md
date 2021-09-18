@@ -1,3 +1,4 @@
+# [Police searching 'vast' area for Gabby Petito's boyfriend](./20210918235903)
 # [Mayor of famously liberal city ignores mask rule at club](./20210918175839)
 # [Family of missing woman's fiancé tells police he's missing](./20210918055846)
 # [Colorado governor's marriage makes history](./20210917115910)
