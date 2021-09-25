@@ -1,3 +1,4 @@
+# [The huge implications to vaccinating younger kids](./20210925175843)
 # [CDC releases new data about masking and schools](./20210925115833)
 # [Beloved 'Wire' star's cause of death revealed](./20210924235840)
 # [George Floyd's killer raises 14 issues about his prosecution](./20210924175900)
