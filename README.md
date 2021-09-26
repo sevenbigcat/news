@@ -1,3 +1,4 @@
+# [Whistleblower issues rebuke of Trump's efforts for 2024](./20210926235843)
 # [Whistleblower warns against Trump returning to WH](./20210926175857)
 # [Trump officials 'were seeing blood' over CIA data loss](./20210926115848)
 # [Boxing: Heavyweight champ loses in stunning upset](./20210926055846)
