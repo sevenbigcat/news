@@ -1,3 +1,4 @@
+# [Police shoot and kill armed man in front of beachgoers](./20210927115851)
 # [Rookie QB pays for Bears coach's major mistake](./20210927055857)
 # [Whistleblower issues rebuke of Trump's efforts for 2024](./20210926235843)
 # [Whistleblower warns against Trump returning to WH](./20210926175857)
