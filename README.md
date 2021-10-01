@@ -1,3 +1,4 @@
+# [Video sheds new light on cop challenging Black woman](./20211001175837)
 # [Video shows moments before officer attacks Black woman](./20211001115851)
 # [Super Bowl 2022 halftime performers revealed](./20211001055859)
 # [COVID-19 pill works against variants, Merck says](./20210930175859)
