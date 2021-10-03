@@ -1,3 +1,4 @@
+# [1 country, once a COVID disaster, now a global model](./20211003115840)
 # [There's virtually nobody left to vaccinate in this country](./20211002235847)
 # [Trump reveals which vaccine he received](./20211002175840)
 # [Decision made to remove young mom from life support](./20211002055853)
