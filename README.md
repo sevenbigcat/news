@@ -1,3 +1,4 @@
+# [Experts do not understand mysterious COVID pattern](./20211004175859)
 # [Homecoming ends in typical Brady fashion](./20211004115855)
 # [Facing huge financial hit, NBA player gets COVID vaccine](./20211004055844)
 # [NBA player who refused to get COVID vaccine relents](./20211003235859)
