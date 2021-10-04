@@ -1,3 +1,4 @@
+# [Facebook coming back online after hours-long outage](./20211004235900)
 # [Experts do not understand mysterious COVID pattern](./20211004175859)
 # [Homecoming ends in typical Brady fashion](./20211004115855)
 # [Facing huge financial hit, NBA player gets COVID vaccine](./20211004055844)
