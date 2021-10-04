@@ -1,3 +1,4 @@
+# [Facing huge financial hit, NBA player gets COVID vaccine](./20211004055844)
 # [NBA player who refused to get COVID vaccine relents](./20211003235859)
 # [Expert: Home prices 'will see big declines in coming years'](./20211003175844)
 # [1 country, once a COVID disaster, now a global model](./20211003115840)
