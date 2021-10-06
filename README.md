@@ -1,3 +1,4 @@
+# [Schools are banning an old-school 'safe place' sign](./20211006235848)
 # [Multiple sightings of Brian Laundrie reported in N.C.](./20211006175850)
 # [911 caller '99.99 percent' positive he spoke to Laundrie](./20211006115848)
 # [Dozens of CIA informants captured or killed](./20211006055837)
