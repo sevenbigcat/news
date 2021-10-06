@@ -1,3 +1,4 @@
+# [Dozens of CIA informants captured or killed](./20211006055837)
 # [Facebook reveals cause of Monday's massive outage](./20211005175857)
 # ['Get us out of this horrible mess': Laundrie's sister in plea](./20211005115849)
 # [USPS considering a massive new line of business](./20211005055834)
