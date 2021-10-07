@@ -1,3 +1,4 @@
+# [The 'murder-suicide pact' in final days of Trump's reign](./20211007175844)
 # [Young investors are following Pelosi's husband's trades](./20211007115908)
 # [FBI raids union offices, and all signs point in 1 direction](./20211007055837)
 # [Schools are banning an old-school 'safe place' sign](./20211006235848)
