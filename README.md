@@ -1,3 +1,4 @@
+# [New class students must take to graduate in California](./20211009055842)
 # [Missing persons experts: How Laundrie may have fled](./20211008175844)
 # [U.S. nuclear submarine hits unknown object in Pacific](./20211008115856)
 # [The 'murder-suicide pact' in final days of Trump's reign](./20211007175844)
