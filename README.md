@@ -1,3 +1,4 @@
+# [Georgia officer shot to death on his first shift](./20211010055841)
 # [Fast food that's most popular among teenagers](./20211009235839)
 # [New class students must take to graduate in California](./20211009055842)
 # [Missing persons experts: How Laundrie may have fled](./20211008175844)
