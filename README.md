@@ -1,3 +1,4 @@
+# [Suicides on college campus prompt class cancellations](./20211011235859)
 # [University cancels classes due to suicide probes](./20211011175842)
 # [Undercover investigation reveals corruption, brutality](./20211011115841)
 # [Southwest Airlines cancels more than 1,000 flights](./20211010175849)
