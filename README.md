@@ -1,3 +1,4 @@
+# [Undercover investigation reveals corruption, brutality](./20211011115841)
 # [Southwest Airlines cancels more than 1,000 flights](./20211010175849)
 # [Facebook might be past the point of no return](./20211010115851)
 # [Georgia officer shot to death on his first shift](./20211010055841)
