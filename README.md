@@ -1,3 +1,4 @@
+# [WH's one-word reply to GOP governor's mandate defiance](./20211012235853)
 # [Raiders' Jon Gruden quits as emails surface](./20211012115846)
 # [Raiders' Gruden resigns as emails surface](./20211012055849)
 # [Suicides on college campus prompt class cancellations](./20211011235859)
