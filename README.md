@@ -1,3 +1,4 @@
+# [Raiders' Jon Gruden quits as emails surface](./20211012115846)
 # [Raiders' Gruden resigns as emails surface](./20211012055849)
 # [Suicides on college campus prompt class cancellations](./20211011235859)
 # [University cancels classes due to suicide probes](./20211011175842)
