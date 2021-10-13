@@ -1,3 +1,4 @@
+# [3 USPS workers, including suspect, dead in shooting](./20211013055842)
 # [WH's one-word reply to GOP governor's mandate defiance](./20211012235853)
 # [Raiders' Jon Gruden quits as emails surface](./20211012115846)
 # [Raiders' Gruden resigns as emails surface](./20211012055849)
