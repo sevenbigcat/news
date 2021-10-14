@@ -1,3 +1,4 @@
+# ['Landmark settlement' reached in student loan case](./20211014115839)
 # ['Cruel and brutal': 5 killed in bow-and-arrow attack](./20211013235910)
 # [3 USPS workers, including suspect, dead in shooting](./20211013055842)
 # [WH's one-word reply to GOP governor's mandate defiance](./20211012235853)
