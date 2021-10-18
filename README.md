@@ -1,3 +1,4 @@
+# [These grocery products may be harder to find](./20211018055906)
 # [Aaron Rodgers slays Bears, then burns their fans](./20211017235902)
 # [The most effective weapon in battling white supremacy](./20211017175846)
 # [Woman raped on train as riders did nothing: Police](./20211016175841)
