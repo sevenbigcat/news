@@ -1,3 +1,4 @@
+# [Southwest reverses decision on unvaccinated staff](./20211020115851)
 # [CIA forces out officer known as the 'Prince of Darkness'](./20211019235853)
 # [How some now have 'super-immunity' against COVID](./20211019175839)
 # [Experts: Powell's death wasn't due to vaccine failure](./20211018235847)
