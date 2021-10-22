@@ -1,3 +1,4 @@
+# [Baldwin shoots prop gun, killing 1, on movie set](./20211022115850)
 # [Alec Baldwin shoots prop gun, killing 1, on movie set](./20211022055855)
 # [FBI: Found human remains are those of Brian Laundrie](./20211021235905)
 # [World's most restricted city prepares to exit lockdown](./20211021115912)
