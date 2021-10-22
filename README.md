@@ -1,3 +1,4 @@
+# [Alec Baldwin speaks out after fatal on-set incident](./20211022175836)
 # [Baldwin shoots prop gun, killing 1, on movie set](./20211022115850)
 # [Alec Baldwin shoots prop gun, killing 1, on movie set](./20211022055855)
 # [FBI: Found human remains are those of Brian Laundrie](./20211021235905)
