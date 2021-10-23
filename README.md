@@ -1,3 +1,4 @@
+# [Warrant reveals more details about Baldwin shooting](./20211023055855)
 # [Before Baldwin shooting, crew walked off: Reports](./20211022235900)
 # [Alec Baldwin speaks out after fatal on-set incident](./20211022175836)
 # [Baldwin shoots prop gun, killing 1, on movie set](./20211022115850)
