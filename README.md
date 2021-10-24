@@ -1,3 +1,4 @@
+# [Talk of secession from liberal state brewing for years](./20211024115901)
 # [Director who survived Alec Baldwin shooting speaks](./20211023235845)
 # [Warrant reveals more details about Baldwin shooting](./20211023055855)
 # [Before Baldwin shooting, crew walked off: Reports](./20211022235900)
