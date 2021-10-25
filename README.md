@@ -1,3 +1,4 @@
+# [Jan. 6 rally organizers level explosive allegations: Report](./20211025055854)
 # [Nets put arena on lockdown after protest turns ugly](./20211024235901)
 # ['Shocking': State's top doctor refuses to wear mask](./20211024175844)
 # [Talk of secession from liberal state brewing for years](./20211024115901)
