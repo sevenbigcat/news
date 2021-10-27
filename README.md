@@ -1,3 +1,4 @@
+# [Braves slugger makes history in Game 1 win](./20211027055842)
 # [TikTok star accused of killing wife and man she was with](./20211026115845)
 # ['It's bad': Health experts worry about Ariz. crisis](./20211026055843)
 # [Actor: Hutchins's death 'a tragedy of epic proportions'](./20211025175902)
