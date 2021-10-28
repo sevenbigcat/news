@@ -1,3 +1,4 @@
+# [White male exec who alleged discrimination awarded $10M](./20211028115854)
 # [Horrific details emerge after boy, 8, found dead in home](./20211028055905)
 # [Why Florida now has America's lowest COVID rate](./20211027175850)
 # [Braves slugger makes history in Game 1 win](./20211027055842)
