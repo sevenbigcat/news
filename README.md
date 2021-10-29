@@ -1,3 +1,4 @@
+# ['We have a problem': Pfizer CEO blasts U.S. drug pricing](./20211029115840)
 # [Opinion: Roger Goodell just revealed his true colors](./20211029055844)
 # [White male exec who alleged discrimination awarded $10M](./20211028115854)
 # [Horrific details emerge after boy, 8, found dead in home](./20211028055905)
