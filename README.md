@@ -1,3 +1,4 @@
+# [Taliban's demand to the world: 'Give us our money'](./20211029235901)
 # [Donald Trump pays the price for poisonous politics](./20211029175905)
 # ['We have a problem': Pfizer CEO blasts U.S. drug pricing](./20211029115840)
 # [Opinion: Roger Goodell just revealed his true colors](./20211029055844)
