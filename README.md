@@ -1,3 +1,4 @@
+# [Apple co-founder gets new iPhone, can't tell difference](./20211030055904)
 # [Taliban's demand to the world: 'Give us our money'](./20211029235901)
 # [Donald Trump pays the price for poisonous politics](./20211029175905)
 # ['We have a problem': Pfizer CEO blasts U.S. drug pricing](./20211029115840)
