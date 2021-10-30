@@ -1,3 +1,4 @@
+# [Apple co-founder has 1 issue with the new iPhone](./20211030115845)
 # [Apple co-founder gets new iPhone, can't tell difference](./20211030055904)
 # [Taliban's demand to the world: 'Give us our money'](./20211029235901)
 # [Donald Trump pays the price for poisonous politics](./20211029175905)
