@@ -1,3 +1,4 @@
+# [Newly declassified intel report on COVID origins](./20211031235853)
 # [American Airlines cancels more than 1,400 flights](./20211031175844)
 # [Wave of violent crime plagues West Coast city](./20211031115836)
 # [Ivana Trump 'devastated' by ex-husband’s death at 49](./20211031055857)
