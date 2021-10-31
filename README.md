@@ -1,3 +1,4 @@
+# [Wave of violent crime plagues West Coast city](./20211031115836)
 # [Ivana Trump 'devastated' by ex-husband’s death at 49](./20211031055857)
 # [Ex-husband's death at age 49 devastates Ivana Trump](./20211030235853)
 # [Apple co-founder has 1 issue with the new iPhone](./20211030115845)
