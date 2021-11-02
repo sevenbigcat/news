@@ -1,3 +1,4 @@
+# [Raiders WR Henry Ruggs involved in fatal car crash](./20211102235850)
 # [So many jobs depend on this industry, ripple effect is clear](./20211102175845)
 # [IRS has a welcome surprise for 430,000 taxpayers](./20211101235846)
 # [Small island nation locks down after 1st virus case](./20211101115857)
