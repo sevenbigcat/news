@@ -1,3 +1,4 @@
+# [Reported COVID case raises questions about Rodgers](./20211103175845)
 # [6 key takeways from Tuesday's elections](./20211103115902)
 # [Michelle Wu wins historic race for Boston mayor](./20211103055837)
 # [Raiders WR Henry Ruggs involved in fatal car crash](./20211102235850)
