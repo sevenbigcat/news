@@ -1,3 +1,4 @@
+# [Biden after Virginia defeat: 'People are upset'](./20211104115856)
 # [Disturbing details released from NFL player's car crash](./20211103235843)
 # [Reported COVID case raises questions about Rodgers](./20211103175845)
 # [6 key takeways from Tuesday's elections](./20211103115902)
