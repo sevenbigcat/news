@@ -1,3 +1,4 @@
+# [Officials: 8 dead, many injured at Astroworld Festival](./20211106115839)
 # [Expert: Star 'hurting himself in unimaginable ways'](./20211106055857)
 # ['Her portfolio is trash': Progressives on VP Harris](./20211105235849)
 # [Family of woman killed in Ruggs crash devastated](./20211105175854)
