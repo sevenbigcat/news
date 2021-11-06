@@ -1,3 +1,4 @@
+# [Aaron Rodgers fallout: Company severs ties with him](./20211106235856)
 # [Officials: 8 dead, many injured at Astroworld Festival](./20211106115839)
 # [Expert: Star 'hurting himself in unimaginable ways'](./20211106055857)
 # ['Her portfolio is trash': Progressives on VP Harris](./20211105235849)
