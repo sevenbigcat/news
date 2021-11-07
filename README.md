@@ -1,3 +1,4 @@
+# [Rapper at deadly show has arrests for concert incidents](./20211107175852)
 # [Aaron Rodgers fallout: Company severs ties with him](./20211106235856)
 # [Officials: 8 dead, many injured at Astroworld Festival](./20211106115839)
 # [Expert: Star 'hurting himself in unimaginable ways'](./20211106055857)
