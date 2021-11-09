@@ -1,3 +1,4 @@
+# [Commentary: Maybe Biden should quit while he’s ahead](./20211109055836)
 # [New vaccine rules take effect in nation's 2nd-largest city](./20211108175845)
 # [Biden's approval plummets; VP Harris's even worse](./20211108115844)
 # [Rapper at deadly show has arrests for concert incidents](./20211107175852)
