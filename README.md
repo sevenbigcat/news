@@ -1,3 +1,4 @@
+# [Rittenhouse judge appears to buy lawyer's false claim](./20211111175842)
 # [A major risk if Elizabeth Holmes takes the stand](./20211111115842)
 # ['I wished to God I was wrong, but I knew it was him'](./20211110175859)
 # [Cruz's response to Buttigieg: 'We must get rid of roads'](./20211110115842)
