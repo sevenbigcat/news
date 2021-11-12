@@ -1,3 +1,4 @@
+# ['Asian food' joke puts new focus on Rittenhouse judge](./20211112115838)
 # [Lack of tech knowledge may have influenced case](./20211111235841)
 # [Rittenhouse judge appears to buy lawyer's false claim](./20211111175842)
 # [A major risk if Elizabeth Holmes takes the stand](./20211111115842)
