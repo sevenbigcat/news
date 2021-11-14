@@ -1,3 +1,4 @@
+# [Stolen shipments become the norm as crisis worsens](./20211114175844)
 # [Not just a matter of homicide at Rittenhouse trial](./20211114055852)
 # [Abortions decreased in Texas. But new problems arose.](./20211113235843)
 # [Commentary: The Biden win no one noticed](./20211113115837)
