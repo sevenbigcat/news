@@ -1,3 +1,4 @@
+# [European nation orders lockdown for unvaccinated](./20211115115909)
 # ['We just dropped on 50 women and children': U.S.](./20211114235850)
 # [Stolen shipments become the norm as crisis worsens](./20211114175844)
 # [Not just a matter of homicide at Rittenhouse trial](./20211114055852)
