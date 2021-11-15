@@ -1,3 +1,4 @@
+# [Expert: Rittenhouse trial may be the 'tipping point back'](./20211115175838)
 # [European nation orders lockdown for unvaccinated](./20211115115909)
 # ['We just dropped on 50 women and children': U.S.](./20211114235850)
 # [Stolen shipments become the norm as crisis worsens](./20211114175844)
