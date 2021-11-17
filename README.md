@@ -1,3 +1,4 @@
+# [Rittenhouse asks judge to declare mistrial over video](./20211117235851)
 # [Fugitive couple sentenced in 'horrific' COVID loan scam](./20211117175856)
 # [Senator's retirement sparks wild race for replacement](./20211117055841)
 # [Audit: Governor spent COVID funds on salaries](./20211116175845)
