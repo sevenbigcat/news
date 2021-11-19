@@ -1,3 +1,4 @@
+# [Dramatic reactions to Rittenhouse verdict](./20211119235850)
 # [Harris makes history amid Biden health procedure](./20211119175842)
 # [European nation reimposes full virus lockdown](./20211119115901)
 # [Big storm could wallop U.S. just before Thanksgiving](./20211119055858)
