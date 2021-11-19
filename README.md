@@ -1,3 +1,4 @@
+# [European nation reimposes full virus lockdown](./20211119115901)
 # [Big storm could wallop U.S. just before Thanksgiving](./20211119055858)
 # [Travel troubles for millions if meteorologists are right](./20211118235844)
 # ['We could be looking at a huge mess' for Thanksgiving](./20211118175906)
