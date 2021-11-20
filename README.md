@@ -1,3 +1,4 @@
+# ['Outright lies': Fauci pushes back over viral claim](./20211120175853)
 # [Sports world reacts to the Kyle Rittenhouse verdict](./20211120055851)
 # [Dramatic reactions to Rittenhouse verdict](./20211119235850)
 # [Harris makes history amid Biden health procedure](./20211119175842)
