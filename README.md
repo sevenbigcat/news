@@ -1,3 +1,4 @@
+# [CDC warns Americans not to travel to these 2 countries](./20211124115840)
 # [Attorney reveals Brian Laundrie's cause of death](./20211123235901)
 # [Malcolm X's daughter found dead in her apartment](./20211123175908)
 # [Experts' repeated warnings on Great Salt Lake now true](./20211122235859)
