@@ -1,3 +1,4 @@
+# [Minimum sentences of life in prison for Arbery killers](./20211124235844)
 # ['I regret and should not have made that comment': Dimon](./20211124175841)
 # [CDC warns Americans not to travel to these 2 countries](./20211124115840)
 # [Attorney reveals Brian Laundrie's cause of death](./20211123235901)
