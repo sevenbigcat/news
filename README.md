@@ -1,3 +1,4 @@
+# [New highly transmissible variant of concern gets name](./20211126235855)
 # [Michigan struggles with flood of COVID-19 patients](./20211126115857)
 # [Firefighter allegedly performs gross act over mandate](./20211126055858)
 # [Trump makes dramatic legal argument in Jan. 6 fight](./20211125175853)
