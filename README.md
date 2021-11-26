@@ -1,3 +1,4 @@
+# [Michigan struggles with flood of COVID-19 patients](./20211126115857)
 # [Firefighter allegedly performs gross act over mandate](./20211126055858)
 # [Trump makes dramatic legal argument in Jan. 6 fight](./20211125175853)
 # [Minimum sentences of life in prison for Arbery killers](./20211124235844)
