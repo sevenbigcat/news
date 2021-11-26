@@ -1,3 +1,4 @@
+# [Firefighter allegedly performs gross act over mandate](./20211126055858)
 # [Trump makes dramatic legal argument in Jan. 6 fight](./20211125175853)
 # [Minimum sentences of life in prison for Arbery killers](./20211124235844)
 # ['I regret and should not have made that comment': Dimon](./20211124175841)
