@@ -1,3 +1,4 @@
+# [N.Y. declares state of emergency amid virus variant](./20211127175849)
 # [New highly transmissible variant of concern gets name](./20211126235855)
 # [Michigan struggles with flood of COVID-19 patients](./20211126115857)
 # [Firefighter allegedly performs gross act over mandate](./20211126055858)
