@@ -1,3 +1,4 @@
+# ['Be prepared to do anything and everything': Fauci](./20211128175837)
 # [Airline crew makes frightful discovery in landing gear](./20211128115854)
 # [N.Y. declares state of emergency amid virus variant](./20211127175849)
 # [New highly transmissible variant of concern gets name](./20211126235855)
