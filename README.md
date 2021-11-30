@@ -1,3 +1,4 @@
+# [Moderna CEO says vaccines less effective against Omicron](./20211130115901)
 # ['They're going to impeach her': High stakes for Holmes](./20211129175843)
 # [1 aspect of Omicron variant that concerns scientists](./20211128235852)
 # ['Be prepared to do anything and everything': Fauci](./20211128175837)
