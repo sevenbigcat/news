@@ -1,3 +1,4 @@
+# [New details on Baldwin's actions after 'Rust' shooting](./20211201055847)
 # ['Horrific': School shooting leaves 3 dead, 8 wounded](./20211130235843)
 # [Moderna CEO says vaccines less effective against Omicron](./20211130115901)
 # ['They're going to impeach her': High stakes for Holmes](./20211129175843)
