@@ -1,3 +1,4 @@
+# [WH's frank admission about the pandemic](./20211202055839)
 # [Hollywood heartthrob was 1st high-profile AIDS death](./20211201115842)
 # [New details on Baldwin's actions after 'Rust' shooting](./20211201055847)
 # ['Horrific': School shooting leaves 3 dead, 8 wounded](./20211130235843)
