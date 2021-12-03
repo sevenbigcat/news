@@ -1,3 +1,4 @@
+# [Cancer-stricken rocker: 'I was due for something tragic'](./20211203115847)
 # [Omicron has scientists altering stance on boosters](./20211203055844)
 # ['Schools will be closed on Thursday': Superintendent](./20211202235854)
 # [Poll reveals how many want Roe v. Wade overturned](./20211202175836)
