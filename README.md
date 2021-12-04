@@ -1,3 +1,4 @@
+# [Michigan parents held on $500K bond each](./20211204175842)
 # [Police: Parents of suspect in school shooting arrested](./20211204115844)
 # [Strange twist after shooting suspect's parents charged](./20211203235843)
 # [Cancer-stricken rocker: 'I was due for something tragic'](./20211203115847)
