@@ -1,3 +1,4 @@
+# [CNN anchor Chris Cuomo fired following investigation](./20211205055905)
 # [Nationwide recall for COVID treatment drug Trump took](./20211204235831)
 # [Michigan parents held on $500K bond each](./20211204175842)
 # [Police: Parents of suspect in school shooting arrested](./20211204115844)
