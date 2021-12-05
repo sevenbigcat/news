@@ -1,3 +1,4 @@
+# [Dramatic day reveals details about parents of suspect](./20211205235849)
 # ['Apparently anonymous allegations are not true'](./20211205175844)
 # [CNN anchor Chris Cuomo fired following investigation](./20211205055905)
 # [Nationwide recall for COVID treatment drug Trump took](./20211204235831)
