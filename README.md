@@ -1,3 +1,4 @@
+# [Report reveals extent of possible Trump COVID spread](./20211206175846)
 # [Lawyer: Artist didn't know Crumbleys slept in his studio](./20211206115902)
 # [Dramatic day reveals details about parents of suspect](./20211205235849)
 # ['Apparently anonymous allegations are not true'](./20211205175844)
