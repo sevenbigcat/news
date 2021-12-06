@@ -1,3 +1,4 @@
+# [Lawyer: Artist didn't know Crumbleys slept in his studio](./20211206115902)
 # [Dramatic day reveals details about parents of suspect](./20211205235849)
 # ['Apparently anonymous allegations are not true'](./20211205175844)
 # [CNN anchor Chris Cuomo fired following investigation](./20211205055905)
