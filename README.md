@@ -1,3 +1,4 @@
+# [Former sex worker details Epstein's brutal attacks](./20211207235958)
 # [Meadows makes abrupt reversal on Jan. 6 probe](./20211207175843)
 # [After his CNN ouster, Chris Cuomo drops another gig](./20211206235855)
 # [Report reveals extent of possible Trump COVID spread](./20211206175846)
