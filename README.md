@@ -1,3 +1,4 @@
+# [Meadows makes abrupt reversal on Jan. 6 probe](./20211207175843)
 # [After his CNN ouster, Chris Cuomo drops another gig](./20211206235855)
 # [Report reveals extent of possible Trump COVID spread](./20211206175846)
 # [Lawyer: Artist didn't know Crumbleys slept in his studio](./20211206115902)
