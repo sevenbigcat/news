@@ -1,3 +1,4 @@
+# [Testy reply: Psaki's curt remark about COVID testing](./20211208055857)
 # [Former sex worker details Epstein's brutal attacks](./20211207235958)
 # [Meadows makes abrupt reversal on Jan. 6 probe](./20211207175843)
 # [After his CNN ouster, Chris Cuomo drops another gig](./20211206235855)
