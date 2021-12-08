@@ -1,3 +1,4 @@
+# [Boebert draws backlash for family Christmas photo](./20211208235838)
 # [Judge dismisses Rose McGowan's lawsuit](./20211208175904)
 # [Testy reply: Psaki's curt remark about COVID testing](./20211208055857)
 # [Former sex worker details Epstein's brutal attacks](./20211207235958)
