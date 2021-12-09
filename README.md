@@ -1,3 +1,4 @@
+# [College student vanished in 1976. His car was just found.](./20211209115850)
 # [Boebert draws backlash for family Christmas photo](./20211208235838)
 # [Judge dismisses Rose McGowan's lawsuit](./20211208175904)
 # [Testy reply: Psaki's curt remark about COVID testing](./20211208055857)
