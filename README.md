@@ -1,3 +1,4 @@
+# [COVID hospitalizations in New York tied to 1 thing](./20211209235838)
 # [College student vanished in 1976. His car was just found.](./20211209115850)
 # [Boebert draws backlash for family Christmas photo](./20211208235838)
 # [Judge dismisses Rose McGowan's lawsuit](./20211208175904)
