@@ -1,3 +1,4 @@
+# [A significant shift in Florida's political landscape](./20211212235850)
 # [A new low in Biden's overall approval rating](./20211212175838)
 # [Democrat, Republican team up against 'political theater'](./20211212115841)
 # [Death toll in devastating Ky. tornado could top 100](./20211212055842)
