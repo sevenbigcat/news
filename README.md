@@ -1,3 +1,4 @@
+# [Democrat, Republican team up against 'political theater'](./20211212115841)
 # [Death toll in devastating Ky. tornado could top 100](./20211212055842)
 # [Facing a pivotal moment, will MLB actually care about fans?](./20211211235843)
 # [Many trapped after Amazon Warehouse roof collapse](./20211211175848)
