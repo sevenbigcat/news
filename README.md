@@ -1,3 +1,4 @@
+# [1 of every 100 older Americans has died from COVID](./20211213175905)
 # [A significant shift in Florida's political landscape](./20211212235850)
 # [A new low in Biden's overall approval rating](./20211212175838)
 # [Democrat, Republican team up against 'political theater'](./20211212115841)
