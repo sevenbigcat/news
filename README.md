@@ -1,3 +1,4 @@
+# [Nassar victims awarded 1 of biggest abuse settlements](./20211213235911)
 # [1 of every 100 older Americans has died from COVID](./20211213175905)
 # [A significant shift in Florida's political landscape](./20211212235850)
 # [A new low in Biden's overall approval rating](./20211212175838)
