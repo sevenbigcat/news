@@ -1,3 +1,4 @@
+# [Restaurant's PR firestorm: Server fired after large tip](./20211214175848)
 # [Top Democrat 'deeply' disturbed by probing report](./20211214055852)
 # [Nassar victims awarded 1 of biggest abuse settlements](./20211213235911)
 # [1 of every 100 older Americans has died from COVID](./20211213175905)
