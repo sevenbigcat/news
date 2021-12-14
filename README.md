@@ -1,3 +1,4 @@
+# [Watch Crumbley parents enter court for 1st time](./20211214235857)
 # [Restaurant's PR firestorm: Server fired after large tip](./20211214175848)
 # [Top Democrat 'deeply' disturbed by probing report](./20211214055852)
 # [Nassar victims awarded 1 of biggest abuse settlements](./20211213235911)
