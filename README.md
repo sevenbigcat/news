@@ -1,3 +1,4 @@
+# [Top Democrat 'deeply' disturbed by probing report](./20211214055852)
 # [Nassar victims awarded 1 of biggest abuse settlements](./20211213235911)
 # [1 of every 100 older Americans has died from COVID](./20211213175905)
 # [A significant shift in Florida's political landscape](./20211212235850)
