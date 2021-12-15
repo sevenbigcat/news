@@ -1,3 +1,4 @@
+# [Public left 'shell-shocked' by pandemic's latest turn](./20211215235851)
 # [Proud Boys' shift in strategy called 'concerning'](./20211215175848)
 # ['Doomsday glacier': Scientists issue dire warning](./20211215055900)
 # [Watch Crumbley parents enter court for 1st time](./20211214235857)
