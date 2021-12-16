@@ -1,3 +1,4 @@
+# [Judge who made racist slur takes leave of absence](./20211216235842)
 # ['Fueled by a fear': Critics slam Gov. Noem's proposed ban](./20211216175856)
 # [Jaguars fire Urban Meyer after just 13 games](./20211216115905)
 # [Public left 'shell-shocked' by pandemic's latest turn](./20211215235851)
