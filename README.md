@@ -1,3 +1,4 @@
+# [Jaguars fire Urban Meyer after just 13 games](./20211216115905)
 # [Public left 'shell-shocked' by pandemic's latest turn](./20211215235851)
 # [Proud Boys' shift in strategy called 'concerning'](./20211215175848)
 # ['Doomsday glacier': Scientists issue dire warning](./20211215055900)
