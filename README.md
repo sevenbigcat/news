@@ -1,3 +1,4 @@
+# [Multiple NFL games postponed due to COVID](./20211217235903)
 # [Omicron poses a threat. For Red America, it's worse.](./20211217175845)
 # [New documents from EPA draw startling conclusion](./20211217055911)
 # [Judge who made racist slur takes leave of absence](./20211216235842)
