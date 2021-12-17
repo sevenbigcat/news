@@ -1,3 +1,4 @@
+# [Omicron poses a threat. For Red America, it's worse.](./20211217175845)
 # [New documents from EPA draw startling conclusion](./20211217055911)
 # [Judge who made racist slur takes leave of absence](./20211216235842)
 # ['Fueled by a fear': Critics slam Gov. Noem's proposed ban](./20211216175856)
