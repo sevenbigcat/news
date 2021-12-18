@@ -1,3 +1,4 @@
+# [Trump stuns with comments about American Jews](./20211218115835)
 # [Harvard hoax 'not like anything I've ever seen'](./20211218055843)
 # [Multiple NFL games postponed due to COVID](./20211217235903)
 # [Omicron poses a threat. For Red America, it's worse.](./20211217175845)
