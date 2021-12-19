@@ -1,3 +1,4 @@
+# ['The other slavery': A grim, hidden truth now emerging](./20211219235858)
 # ['I cannot vote to continue with this piece of legislation'](./20211219175846)
 # [After 3rd accuser, Chris Noth dropped by his agency](./20211219055851)
 # [NFL announces major changes to its COVID protocols](./20211218235858)
