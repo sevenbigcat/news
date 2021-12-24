@@ -1,3 +1,4 @@
+# [NFL's chief medical officer makes claim about COVID](./20211224175842)
 # [Airlines forced to cancel Christmas Eve flights](./20211224055847)
 # [Guilty verdict for Kim Potter in Daunte Wright shooting](./20211223235907)
 # [What Biden doesn't need from Harris speaks volumes](./20211223175852)
