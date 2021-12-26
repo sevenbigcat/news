@@ -1,3 +1,4 @@
+# [Fauci was 'stunned' by response from pro-Trump crowd](./20211226235850)
 # [Anger over masks mandates spurs a curbing of power](./20211226175901)
 # [Right-wing provocateur's wife arrested on Christmas Eve](./20211226055837)
 # [Duggars built wholesome TV empire. Now it's in ruins.](./20211225235857)
