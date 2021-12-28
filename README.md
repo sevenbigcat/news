@@ -1,3 +1,4 @@
+# [A group that overwhelmingly rejects the vaccines](./20211228235834)
 # [Groups that overwhelmingly reject the vaccines](./20211228175838)
 # ['Zero COVID' is killing a once great business city](./20211228115851)
 # [International flight turns back midair, prompts protest](./20211228055850)
