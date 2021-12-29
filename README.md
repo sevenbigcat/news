@@ -1,3 +1,4 @@
+# ['I'd just ruined everybody's Christmas, including my own'](./20211229175846)
 # [You won't believe how hot it was in Alaska on Dec. 26](./20211229115857)
 # [Former longtime senator and majority leader dies](./20211229055903)
 # [A group that overwhelmingly rejects the vaccines](./20211228235834)
