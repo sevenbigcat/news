@@ -1,3 +1,4 @@
+# [Former longtime senator and majority leader dies](./20211229055903)
 # [A group that overwhelmingly rejects the vaccines](./20211228235834)
 # [Groups that overwhelmingly reject the vaccines](./20211228175838)
 # ['Zero COVID' is killing a once great business city](./20211228115851)
