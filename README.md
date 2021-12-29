@@ -1,3 +1,4 @@
+# [A positive sign emerges about the Omicron variant](./20211229235854)
 # ['I'd just ruined everybody's Christmas, including my own'](./20211229175846)
 # [You won't believe how hot it was in Alaska on Dec. 26](./20211229115857)
 # [Former longtime senator and majority leader dies](./20211229055903)
