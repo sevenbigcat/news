@@ -1,3 +1,4 @@
+# [Expert: Be ready to 'hunker down' for Omicron surge](./20211230175844)
 # [A positive sign emerges about the Omicron variant](./20211229235854)
 # ['I'd just ruined everybody's Christmas, including my own'](./20211229175846)
 # [You won't believe how hot it was in Alaska on Dec. 26](./20211229115857)
