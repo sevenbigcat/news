@@ -1,3 +1,4 @@
+# [In hard-hit Florida, cries of 'Where is Ron DeSantis?'](./20211231115846)
 # [30,000 ordered to evacuate 2 cities as Colo. fires rage](./20211231055839)
 # [16 states have banned this question in interviews](./20211230235904)
 # [Expert: Be ready to 'hunker down' for Omicron surge](./20211230175844)
