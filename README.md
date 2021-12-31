@@ -1,3 +1,4 @@
+# [30,000 ordered to evacuate 2 cities as Colo. fires rage](./20211231055839)
 # [16 states have banned this question in interviews](./20211230235904)
 # [Expert: Be ready to 'hunker down' for Omicron surge](./20211230175844)
 # [A positive sign emerges about the Omicron variant](./20211229235854)
