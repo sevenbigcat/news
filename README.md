@@ -1,3 +1,4 @@
+# [A-list stars mourn death of showbiz icon Betty White](./20211231235848)
 # [In hard-hit Florida, cries of 'Where is Ron DeSantis?'](./20211231115846)
 # [30,000 ordered to evacuate 2 cities as Colo. fires rage](./20211231055839)
 # [16 states have banned this question in interviews](./20211230235904)
