@@ -1,3 +1,4 @@
+# [Chief justice has stern words for federal judiciary](./20220101175841)
 # ['Disturbing reports' spark Operation Whistle Pig probe](./20220101115902)
 # [False news widely shared on social media this week](./20220101055839)
 # [A-list stars mourn death of showbiz icon Betty White](./20211231235848)
