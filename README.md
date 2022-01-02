@@ -1,3 +1,4 @@
+# [Rep. Greene lashes out after Twitter suspends her account](./20220102175844)
 # [Scientists predict date for Omicron's peak in U.S.](./20220102055842)
 # [Chief justice has stern words for federal judiciary](./20220101175841)
 # ['Disturbing reports' spark Operation Whistle Pig probe](./20220101115902)
