@@ -1,3 +1,4 @@
+# [Study confirms grim reality for cities like NYC and Tokyo](./20220103235836)
 # [Pro-Trump conspiracy theorists have a new enemy](./20220103175837)
 # [Bucs release Brown after bizarre mid-game scene](./20220102235841)
 # [Rep. Greene lashes out after Twitter suspends her account](./20220102175844)
