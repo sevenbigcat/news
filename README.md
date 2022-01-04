@@ -1,3 +1,4 @@
+# [Jury convicts fallen CEO Elizabeth Holmes on 4 counts](./20220104055847)
 # [Study confirms grim reality for cities like NYC and Tokyo](./20220103235836)
 # [Pro-Trump conspiracy theorists have a new enemy](./20220103175837)
 # [Bucs release Brown after bizarre mid-game scene](./20220102235841)
