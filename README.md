@@ -1,3 +1,4 @@
+# [Vaccine mandate foe, rising GOP star dies of COVID](./20220104235903)
 # [Why are so many vaccinated people getting COVID-19?](./20220104115842)
 # [Jury convicts fallen CEO Elizabeth Holmes on 4 counts](./20220104055847)
 # [Study confirms grim reality for cities like NYC and Tokyo](./20220103235836)
