@@ -1,3 +1,4 @@
+# [Why are so many vaccinated people getting COVID-19?](./20220104115842)
 # [Jury convicts fallen CEO Elizabeth Holmes on 4 counts](./20220104055847)
 # [Study confirms grim reality for cities like NYC and Tokyo](./20220103235836)
 # [Pro-Trump conspiracy theorists have a new enemy](./20220103175837)
