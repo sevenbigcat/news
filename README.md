@@ -1,3 +1,4 @@
+# ['People just have no sense of how bad this problem is'](./20220105175843)
 # [People arrested in connection to Jan. 6 came from 46 states](./20220105115903)
 # [Vaccine mandate foe, rising GOP star dies of COVID](./20220104235903)
 # [Why are so many vaccinated people getting COVID-19?](./20220104115842)
