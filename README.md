@@ -1,3 +1,4 @@
+# ['Flurona' detected in U.S. and other countries](./20220106115904)
 # [Trump's plans for the future are becoming clearer](./20220105235834)
 # ['People just have no sense of how bad this problem is'](./20220105175843)
 # [People arrested in connection to Jan. 6 came from 46 states](./20220105115903)
