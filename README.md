@@ -1,3 +1,4 @@
+# [Why new style of skiing is seeing 'exponential' growth](./20220107235848)
 # [Omicron is affecting children in a new way](./20220107175842)
 # [Dick Cheney doesn't mince words about state of GOP](./20220107055841)
 # [European heath officials say CDC 'playing with fire'](./20220106235854)
