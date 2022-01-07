@@ -1,3 +1,4 @@
+# [Dick Cheney doesn't mince words about state of GOP](./20220107055841)
 # [European heath officials say CDC 'playing with fire'](./20220106235854)
 # ['Flurona' detected in U.S. and other countries](./20220106115904)
 # [Trump's plans for the future are becoming clearer](./20220105235834)
