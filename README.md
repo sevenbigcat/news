@@ -1,3 +1,4 @@
+# [Bad news for people hoping to buy a home in 2022](./20220109175836)
 # [Chinese immigrant brutally attacked in NYC dies](./20220109115851)
 # [22 snow tourists dead after being stranded near resort](./20220108175840)
 # [Why isn't Fox News covering bombshell Hannity news?](./20220108055847)
