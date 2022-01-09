@@ -1,3 +1,4 @@
+# [Chinese immigrant brutally attacked in NYC dies](./20220109115851)
 # [22 snow tourists dead after being stranded near resort](./20220108175840)
 # [Why isn't Fox News covering bombshell Hannity news?](./20220108055847)
 # [Why new style of skiing is seeing 'exponential' growth](./20220107235848)
