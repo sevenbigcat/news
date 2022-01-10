@@ -1,3 +1,4 @@
+# [Bob Saget, beloved TV dad, found dead at 65](./20220110055852)
 # [Bad news for people hoping to buy a home in 2022](./20220109175836)
 # [Chinese immigrant brutally attacked in NYC dies](./20220109115851)
 # [22 snow tourists dead after being stranded near resort](./20220108175840)
