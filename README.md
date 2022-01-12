@@ -1,3 +1,4 @@
+# [Pressed on his lies, Trump cuts NPR interview short](./20220112175849)
 # [New details emerge about Bob Saget's final hours](./20220112055836)
 # [Unprecedented move at HHS on Medicare premiums](./20220111175845)
 # [New details emerge in Saget's death following autopsy](./20220111115833)
