@@ -1,3 +1,4 @@
+# [Inside joke among Republicans goes mainstream](./20220113175838)
 # [Why grocery store shelves are empty once again](./20220113115850)
 # ['I'm tired of being quiet': Biden hits a breaking point](./20220112235833)
 # [Pressed on his lies, Trump cuts NPR interview short](./20220112175849)
