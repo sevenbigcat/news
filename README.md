@@ -1,3 +1,4 @@
+# [Thousands of federal inmates to be released this week](./20220114115842)
 # [Inside joke among Republicans goes mainstream](./20220113175838)
 # [Why grocery store shelves are empty once again](./20220113115850)
 # ['I'm tired of being quiet': Biden hits a breaking point](./20220112235833)
