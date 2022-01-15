@@ -1,3 +1,4 @@
+# [Tsunami impacts hit U.S. West Coast after volcano eruption](./20220115235848)
 # [U.S. West Coast under tsunami advisory](./20220115175840)
 # [Republican pushes back against Trump, Cruz, Carlson](./20220115115858)
 # [Pig heart transplant pioneer once stabbed a man 7 times](./20220114235849)
