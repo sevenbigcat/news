@@ -1,3 +1,4 @@
+# [Republican pushes back against Trump, Cruz, Carlson](./20220115115858)
 # [Pig heart transplant pioneer once stabbed a man 7 times](./20220114235849)
 # [Pig heart transplant pioneer stabbed a man 7 times](./20220114175840)
 # [Thousands of federal inmates to be released this week](./20220114115842)
