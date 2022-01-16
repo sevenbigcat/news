@@ -1,3 +1,4 @@
+# [Trump claim: 'If you're white, you don't get the vaccine'](./20220116235844)
 # [Disease experts worry as nations 'give up' on COVID](./20220116175835)
 # [At Arizona rally, Trump targets Biden, 2020 election](./20220116115835)
 # ['Prayers answered. All hostages are out alive.'](./20220116055845)
