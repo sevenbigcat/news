@@ -1,3 +1,4 @@
+# [At Arizona rally, Trump targets Biden, 2020 election](./20220116115835)
 # ['Prayers answered. All hostages are out alive.'](./20220116055845)
 # [Tsunami impacts hit U.S. West Coast after volcano eruption](./20220115235848)
 # [U.S. West Coast under tsunami advisory](./20220115175840)
