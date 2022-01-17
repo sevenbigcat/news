@@ -1,3 +1,4 @@
+# [Mass killer seeks release after 10 years behind bars](./20220117175835)
 # [University of Michigan fires president over relationship](./20220117115842)
 # [Trump claim: 'If you're white, you don't get the vaccine'](./20220116235844)
 # [Disease experts worry as nations 'give up' on COVID](./20220116175835)
