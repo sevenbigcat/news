@@ -1,3 +1,4 @@
+# [Granddaughter of MLK calls out 2 senators by name](./20220118055848)
 # [State will require all visitors to have a COVID booster](./20220117235840)
 # [Mass killer seeks release after 10 years behind bars](./20220117175835)
 # [University of Michigan fires president over relationship](./20220117115842)
