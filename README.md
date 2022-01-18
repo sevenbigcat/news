@@ -1,3 +1,4 @@
+# [Death certificate reveals details about Sidney Poitier](./20220118235843)
 # [Trump advisers say they see a hidden hand at play](./20220118175855)
 # [Granddaughter of MLK calls out 2 senators by name](./20220118055848)
 # [State will require all visitors to have a COVID booster](./20220117235840)
