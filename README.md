@@ -1,3 +1,4 @@
+# [Fauci predicts what will happen to COVID in 2022](./20220120115843)
 # ['We've never seen anything ... that covers the whole Earth'](./20220119175835)
 # [Death certificate reveals details about Sidney Poitier](./20220118235843)
 # [Trump advisers say they see a hidden hand at play](./20220118175855)
