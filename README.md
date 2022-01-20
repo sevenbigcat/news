@@ -1,3 +1,4 @@
+# [McConnell goes viral for comment on Black voters](./20220120235843)
 # [Fauci predicts what will happen to COVID in 2022](./20220120115843)
 # ['We've never seen anything ... that covers the whole Earth'](./20220119175835)
 # [Death certificate reveals details about Sidney Poitier](./20220118235843)
