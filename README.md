@@ -1,3 +1,4 @@
+# [Michigan GOP co-chair's Trump claims caught on tape](./20220121175838)
 # [Pilot turns plane around after passenger refuses mask](./20220121115829)
 # [McConnell goes viral for comment on Black voters](./20220120235843)
 # [Fauci predicts what will happen to COVID in 2022](./20220120115843)
