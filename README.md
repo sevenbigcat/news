@@ -1,3 +1,4 @@
+# [Ex-lawmaker Jewett, 58, dies by medical suicide](./20220122055839)
 # [FBI releases revealing details from Laundrie notebook](./20220121235846)
 # [Michigan GOP co-chair's Trump claims caught on tape](./20220121175838)
 # [Pilot turns plane around after passenger refuses mask](./20220121115829)
