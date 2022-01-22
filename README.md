@@ -1,3 +1,4 @@
+# [These products reveal financial toll of pandemic](./20220122115857)
 # [Ex-lawmaker Jewett, 58, dies by medical suicide](./20220122055839)
 # [FBI releases revealing details from Laundrie notebook](./20220121235846)
 # [Michigan GOP co-chair's Trump claims caught on tape](./20220121175838)
