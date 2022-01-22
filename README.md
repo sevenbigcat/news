@@ -1,3 +1,4 @@
+# [Arizona senator censured after controversial vote](./20220122235852)
 # [Former Vt. House leader, 58, dies by medical suicide](./20220122175847)
 # [These products reveal financial toll of pandemic](./20220122115857)
 # [Ex-lawmaker Jewett, 58, dies by medical suicide](./20220122055839)
