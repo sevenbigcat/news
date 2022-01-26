@@ -1,3 +1,4 @@
+# [Reps. Lamborn and Newman may have violated federal law](./20220126115846)
 # ['Take care of me,' unvaccinated patients ask of doctors](./20220125175857)
 # [Navy fighter jet crashes during aircraft carrier landing](./20220125115839)
 # ['We're in trouble. I hope everyone understands that.'](./20220124175851)
