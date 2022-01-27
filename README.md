@@ -1,3 +1,4 @@
+# [Former child actor Peter Robbins dies by suicide](./20220127055837)
 # [Peter Robbins, voice of Charlie Brown, dies by suicide](./20220126235829)
 # [14th Amendment: Cawthorn disqualified from office?](./20220126175903)
 # [Reps. Lamborn and Newman may have violated federal law](./20220126115846)
