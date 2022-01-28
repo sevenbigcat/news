@@ -1,3 +1,4 @@
+# [COVID hits one of the last uninfected places on Earth](./20220128115855)
 # [Biden implores Congress: Amend the Constitution](./20220127175914)
 # [SCOTUS retirement preempts hardball play from McConnell](./20220127115904)
 # [Former child actor Peter Robbins dies by suicide](./20220127055837)
