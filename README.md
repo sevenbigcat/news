@@ -1,3 +1,4 @@
+# [Could this 'radical' idea solve the housing shortage?](./20220129175843)
 # [ISIS fighters get surrender-or-die ultimatum at prison](./20220129115847)
 # [Why America purchased a tool it is now trying to ban](./20220129055851)
 # [Borrowers shocked to find student loan debts canceled](./20220128235902)
