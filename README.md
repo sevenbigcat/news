@@ -1,3 +1,4 @@
+# [Why America purchased a tool it is now trying to ban](./20220129055851)
 # [Borrowers shocked to find student loan debts canceled](./20220128235902)
 # [COVID hits one of the last uninfected places on Earth](./20220128115855)
 # [Biden implores Congress: Amend the Constitution](./20220127175914)
