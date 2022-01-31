@@ -1,3 +1,4 @@
+# [Alexandria Ocasio-Cortez points finger about inflation](./20220131235846)
 # [The Jan. 6 committee just keeps on winning](./20220131175833)
 # [Hiker dies in 700-foot fall; slipped trying to snap photo](./20220131055845)
 # [Cases caused by Omicron cousin BA.2 worry scientists](./20220130235848)
