@@ -1,3 +1,4 @@
+# [Hiker dies in 700-foot fall; slipped trying to snap photo](./20220131055845)
 # [Cases caused by Omicron cousin BA.2 worry scientists](./20220130235848)
 # [GOP governor on Trump's pledge: 'Oh my goodness, no!'](./20220130175845)
 # [Scientists witness 'biggest predation event on Earth'](./20220130055841)
