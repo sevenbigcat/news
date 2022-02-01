@@ -1,3 +1,4 @@
+# ['Love that. Thank you. That is the playbook. I will help': Text](./20220201175848)
 # [Brady clears the air over retirement talk](./20220201055842)
 # [Alexandria Ocasio-Cortez points finger about inflation](./20220131235846)
 # [The Jan. 6 committee just keeps on winning](./20220131175833)
