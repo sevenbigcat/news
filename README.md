@@ -1,3 +1,4 @@
+# [Democratic senator's stroke jolts 50-50 Senate](./20220202115842)
 # [Whoopi suspended from 'The View' over 'hurtful' remarks](./20220202055841)
 # [1 group at the Olympics is topping virus infections](./20220201235856)
 # ['Love that. Thank you. That is the playbook. I will help': Text](./20220201175848)
