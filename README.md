@@ -1,3 +1,4 @@
+# [Porn star wins case against disgraced attorney Avenatti](./20220205115904)
 # [Avenatti found guilty of stealing $300K from porn star](./20220205055839)
 # [Brian Flores: Bill Belichick is 'part of the problem' in NFL](./20220204235837)
 # [Pelosi issues stern warning to U.S. Olympic athletes](./20220204175846)
