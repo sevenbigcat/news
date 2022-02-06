@@ -1,3 +1,4 @@
+# [Dem Manchin backs Republican's Senate bid](./20220206235849)
 # [Deadly product on Amazon: 'Please stop selling this'](./20220206175851)
 # [Sad news from deep well where boy, 5, was trapped](./20220206000130)
 # [Singer shares video of Rogan using racial slur repeatedly](./20220205175845)
