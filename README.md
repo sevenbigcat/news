@@ -1,3 +1,4 @@
+# [New attitude toward COVID seems to be taking shape](./20220207175847)
 # [Dem Manchin backs Republican's Senate bid](./20220206235849)
 # [Deadly product on Amazon: 'Please stop selling this'](./20220206175851)
 # [Sad news from deep well where boy, 5, was trapped](./20220206000130)
