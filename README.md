@@ -1,3 +1,4 @@
+# [Abrams responds to maskless photo: 'Pitiful, predictable'](./20220208175856)
 # [She's only 15 — and figure skating's greatest ever](./20220208115842)
 # [U.S. on way to economic event not seen in 70 years](./20220207235840)
 # [New attitude toward COVID seems to be taking shape](./20220207175847)
