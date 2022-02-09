@@ -1,3 +1,4 @@
+# [Parents fuming after 'class nurse' girl dies of COVID-19](./20220209235858)
 # ['Absolutely disgusting': Critics pounce on Olympic moment](./20220209055842)
 # [Abrams responds to maskless photo: 'Pitiful, predictable'](./20220208175856)
 # [She's only 15 — and figure skating's greatest ever](./20220208115842)
