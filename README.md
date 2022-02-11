@@ -1,3 +1,4 @@
+# [Chinese-American skier Gu sparks fury with comment](./20220211235845)
 # [5 Phoenix police officers shot after responding to call](./20220211175849)
 # [Jan. 6 lawsuit could cost GOP lawmaker his job](./20220211115846)
 # [Shaun White ends storied career with disappointment](./20220211055841)
