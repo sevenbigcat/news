@@ -1,3 +1,4 @@
+# [Jan. 6 lawsuit could cost GOP lawmaker his job](./20220211115846)
 # [Shaun White ends storied career with disappointment](./20220211055841)
 # [Medical examiner offers more details in Saget's death](./20220210235852)
 # [Angelina Jolie makes impassioned plea to Senate](./20220210175847)
