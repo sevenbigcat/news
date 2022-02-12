@@ -1,3 +1,4 @@
+# [Things get ugly for journalists who reported doping saga](./20220212115839)
 # [Chinese-American skier Gu sparks fury with comment](./20220211235845)
 # [5 Phoenix police officers shot after responding to call](./20220211175849)
 # [Jan. 6 lawsuit could cost GOP lawmaker his job](./20220211115846)
