@@ -1,3 +1,4 @@
+# [Rapper among shooting victims at Bieber after-party](./20220212235858)
 # [Things get ugly for journalists who reported doping saga](./20220212115839)
 # [Chinese-American skier Gu sparks fury with comment](./20220211235845)
 # [5 Phoenix police officers shot after responding to call](./20220211175849)
