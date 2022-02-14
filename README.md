@@ -1,3 +1,4 @@
+# [Where were the masks? Mandate ignored at big game](./20220214175840)
 # ['We haven't seen a movement like this in recent history'](./20220214055849)
 # [Bengals vs. Rams: Follow Super Bowl LVI live](./20220213235848)
 # [Democrats keep close eye on GOP Sen. Lindsey Graham](./20220213175851)
