@@ -1,3 +1,4 @@
+# [Rural Dems remove bumper stickers; party becomes toxic](./20220218055838)
 # [Bawling, broken Valieva a sign of much greater evil: Column](./20220217235853)
 # [Potential trouble ahead for Chrome and Firefox users](./20220217175857)
 # [98-year-old billionaire unloads on vaccine hesitancy](./20220217055839)
