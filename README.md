@@ -1,3 +1,4 @@
+# [Man's terrifying choice as COVID ravages pregnant wife](./20220219115855)
 # [She pays $500 every month, skipping groceries or rent](./20220218175844)
 # [Rural Dems remove bumper stickers; party becomes toxic](./20220218055838)
 # [Bawling, broken Valieva a sign of much greater evil: Column](./20220217235853)
