@@ -1,3 +1,4 @@
+# [White House responds to Trump's praise of Putin](./20220223115847)
 # ['This is genius': Trump hails Putin's incursion into Ukraine](./20220223055853)
 # [Supreme Court delivers blow to controversial pipeline](./20220222235855)
 # [SCOTUS defeat leaves Trump with nowhere to go](./20220222175919)
