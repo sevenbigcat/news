@@ -1,3 +1,4 @@
+# ['This is genius': Trump hails Putin's incursion into Ukraine](./20220223055853)
 # [Supreme Court delivers blow to controversial pipeline](./20220222235855)
 # [SCOTUS defeat leaves Trump with nowhere to go](./20220222175919)
 # [2 ways this war would be different from the rest](./20220222115907)
