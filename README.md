@@ -1,3 +1,4 @@
+# [Truth Social, Trump app, crumbles in disastrous launch](./20220223175846)
 # [White House responds to Trump's praise of Putin](./20220223115847)
 # ['This is genius': Trump hails Putin's incursion into Ukraine](./20220223055853)
 # [Supreme Court delivers blow to controversial pipeline](./20220222235855)
