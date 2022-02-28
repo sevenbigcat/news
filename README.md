@@ -1,3 +1,4 @@
+# [Putin's fears are becoming a self-fulfilling prophecy, fast](./20220228175904)
 # [World's largest plane destroyed in Russian attack](./20220228115901)
 # [Major roadblock to sanctions on Putin's personal assets](./20220227235846)
 # ['A great shock': Has Vladimir Putin gone totally rogue?](./20220227175904)
