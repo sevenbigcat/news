@@ -1,3 +1,4 @@
+# [Brittney Griner reportedly detained in Russia](./20220305175853)
 # [Longtime Russian energy investor has dire prediction](./20220305055839)
 # ['We must stand with Russia!': China's version of war](./20220304235846)
 # [Washington's newest worry: Dangers of cornering Putin](./20220304175853)
