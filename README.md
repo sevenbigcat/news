@@ -1,3 +1,4 @@
+# [McDonald's did more than just close 850 restaurants](./20220310175849)
 # [Russia may use chemical weapons, White House warns](./20220310115857)
 # [Dems embrace politically risky strategy on gas prices](./20220309235850)
 # [Zelensky says Russian attack hit children's hospital](./20220309175915)
