@@ -1,3 +1,4 @@
+# ['Isolated and morally dead' Putin faces invasion fallout](./20220314235859)
 # [Russians outraged by what they see as a criminal war](./20220314175850)
 # [Russia asked China for military assistance: Report](./20220314055834)
 # ['A shocking and horrifying event': U.S. journalist killed](./20220313175844)
