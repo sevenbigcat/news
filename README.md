@@ -1,3 +1,4 @@
+# [Russian troops shoot, kill 10 standing in line for bread: U.S.](./20220316175840)
 # [Secret CIA program helped Kyiv prepare for invasion](./20220316115853)
 # [U.S. makes discovery about Russia's ballistic missiles](./20220315235858)
 # [As sanctions block parts, Russia takes Western airliners](./20220315175853)
