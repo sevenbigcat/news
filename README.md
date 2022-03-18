@@ -1,3 +1,4 @@
+# [Tens of thousands pack stadium to cheer Putin](./20220318175909)
 # [Putin: Critics won't be allowed into 'the superior race'](./20220318055856)
 # [Putin echoes Stalin in 'very, very scary' speech](./20220317235838)
 # [U.S. push to punish elite close to Putin just got complicated](./20220317175841)
