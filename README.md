@@ -1,3 +1,4 @@
+# ['We have to consider that this is becoming a possibility'](./20220322175901)
 # [Sign Russia may be short on weapons in invasion](./20220321235907)
 # [A new COVID-19 variant is spreading across the U.S.](./20220321175850)
 # [Boeing 737 crashes in China with 132 aboard, officials say](./20220321115848)
