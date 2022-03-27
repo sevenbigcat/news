@@ -1,3 +1,4 @@
+# ['He hated what happened to Russia': Understanding Putin](./20220327235850)
 # [Zelensky: A deep hatred is growing among Ukrainians](./20220327115849)
 # [Analysts weigh in on Biden's remark about Putin](./20220327055851)
 # [Ginni Thomas texts expose rift in Jan. 6 committee](./20220326175843)
