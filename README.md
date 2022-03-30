@@ -1,3 +1,4 @@
+# [Smith refused to leave Oscars, could be expelled](./20220330235844)
 # [CDC issues new guidance for Americans who got J&J shot](./20220330115853)
 # [Troops disturbed radioactive dust in 'suicidal' move](./20220329175852)
 # [Tech company pulls out of Russia, leaves behind spy tool](./20220329115844)
