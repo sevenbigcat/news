@@ -1,3 +1,4 @@
+# [Trump attempts to clarify his praise for Putin](./20220331115859)
 # [As opposition to Putin grows, Trump clarifies remarks](./20220331055836)
 # [Smith refused to leave Oscars, could be expelled](./20220330235844)
 # [CDC issues new guidance for Americans who got J&J shot](./20220330115853)
