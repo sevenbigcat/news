@@ -1,3 +1,4 @@
+# [Like 'a cult leader': Director pans Smith's speech](./20220401175842)
 # [What the Wagner Group means for Russian invasion](./20220401115840)
 # ['Strategic blunder' for Russia and its people: White House](./20220401055844)
 # [Chris Rock may be the reason Will Smith wasn't arrested](./20220331235845)
