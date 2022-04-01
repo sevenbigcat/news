@@ -1,3 +1,4 @@
+# ['Strategic blunder' for Russia and its people: White House](./20220401055844)
 # [Chris Rock may be the reason Will Smith wasn't arrested](./20220331235845)
 # [Putin signs decree ordering 134,500 new army conscripts](./20220331175856)
 # [Trump attempts to clarify his praise for Putin](./20220331115859)
