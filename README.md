@@ -1,3 +1,4 @@
+# [Global arrest warrant urged for Putin](./20220402175856)
 # ['Heartbroken' Will Smith resigns from film academy](./20220402055843)
 # [Russian protests give way to war support, anger at West](./20220401235842)
 # [Like 'a cult leader': Director pans Smith's speech](./20220401175842)
