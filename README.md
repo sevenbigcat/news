@@ -1,3 +1,4 @@
+# [Hillary Clinton has some advice on punishing Putin](./20220404055858)
 # [Sacramento shooting kills 6, online video shows chaos](./20220403175901)
 # [A new wave of COVID-19 is coming. Are you prepared?](./20220402235848)
 # [Global arrest warrant urged for Putin](./20220402175856)
