@@ -1,3 +1,4 @@
+# [Russian oligarchs find a place to hide their yachts](./20220407115856)
 # ['They were sitting on the bench. They are dead now.'](./20220406235855)
 # [All 50 Republican senators block COVID bill movement](./20220406175843)
 # [Graphic photos of the dead reveal horrors in Ukraine](./20220406115836)
