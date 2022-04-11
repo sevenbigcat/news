@@ -1,3 +1,4 @@
+# [New Hunter Biden reports raise counterintel questions](./20220411115848)
 # [Putin's war in Ukraine shatters an illusion in Russia](./20220410175850)
 # [Trump Jr. text appears to show ways to overturn election](./20220410115853)
 # [Steelers QB Haskins, 24, dead after being struck by vehicle](./20220410055846)
