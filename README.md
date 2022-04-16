@@ -1,3 +1,4 @@
+# [Cases surge just when U.S. thought it was over COVID](./20220416115849)
 # [The 1st clues appear in sewer water, and they're piling up](./20220415175857)
 # [Wealthy L.A. figure lured Black men to their deaths](./20220415115848)
 # [Russia alarmed by flood of weapons flowing into Ukraine](./20220415055847)
