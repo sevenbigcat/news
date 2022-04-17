@@ -1,3 +1,4 @@
+# [Woman chains self to basket, stopping NBA game](./20220417055836)
 # [South Carolina mall shooting:12 injured, 3 detained](./20220416235901)
 # [Russia's reported warning on U.S. military aid to Ukraine](./20220416175906)
 # [Cases surge just when U.S. thought it was over COVID](./20220416115849)
