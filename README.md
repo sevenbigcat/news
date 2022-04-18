@@ -1,3 +1,4 @@
+# [After 14 hurt in mall shooting, suspect allowed to go to work](./20220418055845)
 # ['The most horrifying thing I have seen in my life': Zelensky](./20220417175852)
 # [Another NBA playoff game is interrupted by a protester](./20220417115852)
 # [Woman chains self to basket, stopping NBA game](./20220417055836)
