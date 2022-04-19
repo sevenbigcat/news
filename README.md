@@ -1,3 +1,4 @@
+# [The billionaires cutting 8-figure checks for the GOP](./20220419115906)
 # [Nothing reveals Trump's hold on the GOP quite like this](./20220418175904)
 # [After 14 hurt in mall shooting, suspect allowed to go to work](./20220418055845)
 # ['The most horrifying thing I have seen in my life': Zelensky](./20220417175852)
