@@ -1,3 +1,4 @@
+# [2 workers dead, 5 kidnapped, 1 raped: Forced labor probe](./20220419175838)
 # [The billionaires cutting 8-figure checks for the GOP](./20220419115906)
 # [Nothing reveals Trump's hold on the GOP quite like this](./20220418175904)
 # [After 14 hurt in mall shooting, suspect allowed to go to work](./20220418055845)
