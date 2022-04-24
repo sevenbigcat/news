@@ -1,3 +1,4 @@
+# [Longest-serving Republican in U.S. Senate history dies](./20220424115837)
 # [Record-setting Republican U.S. senator dies at 88](./20220424055851)
 # [Russia changes course, storms Mariupol steel plant](./20220423235849)
 # [Russia storms Mariupol plant sheltering 1,000 civilians](./20220423175837)
