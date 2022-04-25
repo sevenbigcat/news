@@ -1,3 +1,4 @@
+# [Teenage years undergoing drastic, dangerous change](./20220425055839)
 # [Critical race theory rival finds even 'more explosive' issue](./20220424235844)
 # [Longest-serving Republican in U.S. Senate history dies](./20220424115837)
 # [Record-setting Republican U.S. senator dies at 88](./20220424055851)
