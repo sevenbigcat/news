@@ -1,3 +1,4 @@
+# [Trump answers big question as Musk takes over Twitter](./20220425235841)
 # [Russia has a warning for U.S. if it keeps arming Ukraine](./20220425115843)
 # [Teenage years undergoing drastic, dangerous change](./20220425055839)
 # [Critical race theory rival finds even 'more explosive' issue](./20220424235844)
