@@ -1,3 +1,4 @@
+# [Republican senator blasted for comments on Russia](./20220427115833)
 # ['Everything is halted': Shutdowns worsen shortages](./20220426175854)
 # [A brewing humanitarian crisis for the people of North Korea](./20220426055841)
 # [Trump answers big question as Musk takes over Twitter](./20220425235841)
