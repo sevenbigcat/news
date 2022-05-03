@@ -1,3 +1,4 @@
+# [Sen. Collins's harsh words for Justices Gorsuch, Kavanaugh](./20220503175840)
 # [Stunned Washington reacts to Supreme Court bombshell](./20220503055851)
 # [7 pills, 20-year fight: Fallout of a teen's mistake](./20220502235906)
 # [Ex-Trump official: Trump wanted protesters shot](./20220502175836)
