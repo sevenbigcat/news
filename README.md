@@ -1,3 +1,4 @@
+# ['Slap in the face': Taxpayers irked by canceled-debt idea](./20220503235849)
 # [Sen. Collins's harsh words for Justices Gorsuch, Kavanaugh](./20220503175840)
 # [Stunned Washington reacts to Supreme Court bombshell](./20220503055851)
 # [7 pills, 20-year fight: Fallout of a teen's mistake](./20220502235906)
