@@ -1,3 +1,4 @@
+# [Chauvin avoids life sentence after plea deal accepted](./20220505115843)
 # ['Tremendous vindication' for conservative movement](./20220505055845)
 # [New details emerge about missing inmate, officer](./20220504175848)
 # ['Slap in the face': Taxpayers irked by canceled-debt idea](./20220503235849)
