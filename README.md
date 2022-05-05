@@ -1,3 +1,4 @@
+# [Trevor Noah's joke at WHCD starts to appear prophetic](./20220505175842)
 # [Chauvin avoids life sentence after plea deal accepted](./20220505115843)
 # ['Tremendous vindication' for conservative movement](./20220505055845)
 # [New details emerge about missing inmate, officer](./20220504175848)
