@@ -1,3 +1,4 @@
+# [After capture, new details emerge on jail escape](./20220510175853)
 # [Jail employee dies, inmate captured after manhunt](./20220510115840)
 # [Escaped inmate caught, jail employee dead in Indiana](./20220510055846)
 # [Bizarre end to manhunt for escaped inmate, jail employee](./20220509235849)
