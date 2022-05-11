@@ -1,3 +1,4 @@
+# [Why these are good times for tens of millions of Americans](./20220511115841)
 # [3 kids found dead hours after mother is hospitalized](./20220510235850)
 # [After capture, new details emerge on jail escape](./20220510175853)
 # [Jail employee dies, inmate captured after manhunt](./20220510115840)
