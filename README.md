@@ -1,3 +1,4 @@
+# [500 kids killed at Indian boarding schools: Report](./20220511175833)
 # [Why these are good times for tens of millions of Americans](./20220511115841)
 # [3 kids found dead hours after mother is hospitalized](./20220510235850)
 # [After capture, new details emerge on jail escape](./20220510175853)
