@@ -1,3 +1,4 @@
+# ['This was pure evil': At least 10 dead in N.Y. shooting](./20220514235847)
 # [Sources: Mom kept jumping on kids before they died](./20220514175902)
 # [Russia wants 'Merchant of Death' for Griner: Reports](./20220514062429)
 # [Ex-nurse who killed patient with wrong drug sentenced](./20220513235839)
