@@ -1,3 +1,4 @@
+# [SCOTUS rules 6-3 in favor of Sen. Ted Cruz](./20220516175847)
 # ['This is the MAGA party now': Biden takes off the gloves](./20220516115905)
 # [For Putin, a Nordic nightmare is springing to life](./20220516055856)
 # [Putin could be getting exactly what he feared most](./20220515235838)
