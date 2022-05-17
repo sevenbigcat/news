@@ -1,3 +1,4 @@
+# [Fox News host faces scrutiny after Buffalo massacre](./20220517115907)
 # [SCOTUS rules 6-3 in favor of Sen. Ted Cruz](./20220516175847)
 # ['This is the MAGA party now': Biden takes off the gloves](./20220516115905)
 # [For Putin, a Nordic nightmare is springing to life](./20220516055856)
