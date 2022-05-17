@@ -1,3 +1,4 @@
+# [Plane crash that killed all on board was intentional: U.S.](./20220517235856)
 # [What classmates, neighbors say about Buffalo suspect](./20220517175854)
 # [Fox News host faces scrutiny after Buffalo massacre](./20220517115907)
 # [SCOTUS rules 6-3 in favor of Sen. Ted Cruz](./20220516175847)
