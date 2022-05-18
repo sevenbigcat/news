@@ -1,3 +1,4 @@
+# [Bombshell report on death of Foo Fighters drummer](./20220518055847)
 # [Plane crash that killed all on board was intentional: U.S.](./20220517235856)
 # [What classmates, neighbors say about Buffalo suspect](./20220517175854)
 # [Fox News host faces scrutiny after Buffalo massacre](./20220517115907)
