@@ -1,3 +1,4 @@
+# [Trump washes hands of lagging Perdue in Georgia](./20220520115852)
 # [Republican panic grows after Mastriano wins](./20220519181403)
 # [What primaries are telling us about Trump's influence](./20220519115848)
 # [Trump-era finance chairman of RNC is Chinese agent: U.S.](./20220519055848)
