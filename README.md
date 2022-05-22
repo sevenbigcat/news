@@ -1,3 +1,4 @@
+# [How Americans view the Republican Party: Poll](./20220522175834)
 # [MLB benches clear after alleged racist comment](./20220522055911)
 # [Videos show men moments before execution in Bucha](./20220521235833)
 # [Clinton aide drops bombshell on Trump-Russia allegations](./20220520235838)
