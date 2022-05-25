@@ -1,3 +1,4 @@
+# [2 Republicans drop out of NRA convention in Texas](./20220525175908)
 # [School shootings survivors, families react to massacre](./20220525115849)
 # [Texas school shooting: 4th-grade teacher among victims](./20220525055905)
 # [14 kids, 1 teacher dead after school shooting: Gov. Abbott](./20220524235836)
