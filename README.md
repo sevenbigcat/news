@@ -1,3 +1,4 @@
+# [Texas school shooting: 4th-grade teacher among victims](./20220525055905)
 # [14 kids, 1 teacher dead after school shooting: Gov. Abbott](./20220524235836)
 # [Pelosi responds to bishop who denies her Communion](./20220524175845)
 # [Appeals court rejects law signed by Florida's DeSantis](./20220524115855)
