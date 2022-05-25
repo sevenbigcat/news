@@ -1,3 +1,4 @@
+# [School shootings survivors, families react to massacre](./20220525115849)
 # [Texas school shooting: 4th-grade teacher among victims](./20220525055905)
 # [14 kids, 1 teacher dead after school shooting: Gov. Abbott](./20220524235836)
 # [Pelosi responds to bishop who denies her Communion](./20220524175845)
