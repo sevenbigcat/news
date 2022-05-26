@@ -1,3 +1,4 @@
+# [Grandfather opens up about suspect in Texas massacre](./20220526115843)
 # [Texas massacre suspect's grandfather speaks out](./20220525235841)
 # [2 Republicans drop out of NRA convention in Texas](./20220525175908)
 # [School shootings survivors, families react to massacre](./20220525115849)
