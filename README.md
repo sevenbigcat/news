@@ -1,3 +1,4 @@
+# [Maker of rifle used by Texas gunman draws fury for ads](./20220527115848)
 # [Official account of Texas massacre now in question](./20220526235834)
 # [Uvalde newspaper publishes powerful front page](./20220526175843)
 # [Grandfather opens up about suspect in Texas massacre](./20220526115843)
