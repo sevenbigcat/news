@@ -1,3 +1,4 @@
+# [Trump's primary losses make 1 thing clear: Analysis](./20220529235845)
 # [1 airline canceled the most flights this weekend](./20220529175834)
 # [Zelensky sounds alarm on impending 'catastrophe'](./20220528235837)
 # [When the Feds decided to ignore local police in Uvalde](./20220528115844)
