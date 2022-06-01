@@ -1,3 +1,4 @@
+# ['Every day we wait' poses real risk: Dr. Ashish Jha](./20220601175848)
 # ['I was wrong': Yellen admits she misread inflation threat](./20220601115841)
 # [1 airline canceled over 800 flights this past weekend](./20220531175836)
 # [Putin is going to have to find another big oil customer](./20220531115853)
