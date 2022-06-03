@@ -1,3 +1,4 @@
+# [3 people dead after shooting in Iowa church parking lot](./20220603175855)
 # [3 dead, including gunman, in shooting outside Iowa church](./20220603115845)
 # [After water level drops, 3,400-year-old city found](./20220603055846)
 # [Dwindling water levels reveal a 3,400-year-old lost city](./20220602235844)
