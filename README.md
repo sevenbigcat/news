@@ -1,3 +1,4 @@
+# [Beto O'Rourke takes a political risk after Uvalde](./20220604235903)
 # [5 family members killed in 'unspeakable' crime ID'd](./20220604055855)
 # [3 people dead after shooting in Iowa church parking lot](./20220603175855)
 # [3 dead, including gunman, in shooting outside Iowa church](./20220603115845)
