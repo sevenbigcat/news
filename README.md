@@ -1,3 +1,4 @@
+# [Hope for improved supply chains is 'shattered': Expert](./20220606235846)
 # [Justices decline to hear appeal from the McCloskeys](./20220606175841)
 # [At least 12 dead in another weekend of mass shootings](./20220606115845)
 # [Shooting in Tenn. leads to 3 dead, 14 injured: Police](./20220606055851)
