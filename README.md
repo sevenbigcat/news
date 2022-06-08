@@ -1,3 +1,4 @@
+# [Blowout losses by Democrats send signal to Biden: Opinion](./20220608235851)
 # [Teachers, in political maelstrom, have had enough](./20220608175853)
 # [Key takeaways from Tuesday primaries in 7 states](./20220608115918)
 # [Bombshell email: Trump team involved in scheme](./20220607175844)
