@@ -1,3 +1,4 @@
+# [Key takeaways from Tuesday primaries in 7 states](./20220608115918)
 # [Bombshell email: Trump team involved in scheme](./20220607175844)
 # [Brutal anti-Russian strategy emerges in Ukraine](./20220607115842)
 # ['Please help me': Drowning man begged officers for help](./20220607055903)
