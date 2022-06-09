@@ -1,3 +1,4 @@
+# [WH press secretary's 'great resignation' quip](./20220609175901)
 # [Megachurch leader gets 16 years in prison for abuse](./20220609115902)
 # [Military aircraft crashes in California; 4 people dead](./20220609055839)
 # [Blowout losses by Democrats send signal to Biden: Opinion](./20220608235851)
