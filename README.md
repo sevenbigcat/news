@@ -1,3 +1,4 @@
+# [3 major tourist draws have become COVID hot spots](./20220610235902)
 # [In the wake of primetime Jan. 6 hearing, Trump fumes](./20220610175855)
 # [4 key takeaways from the Jan. 6 primetime hearing](./20220610115857)
 # [Ivanka accepted that 2020 fraud claims are false](./20220610055843)
