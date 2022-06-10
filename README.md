@@ -1,3 +1,4 @@
+# [Ivanka accepted that 2020 fraud claims are false](./20220610055843)
 # [FBI arrests Republican candidate for governor](./20220609235904)
 # [WH press secretary's 'great resignation' quip](./20220609175901)
 # [Megachurch leader gets 16 years in prison for abuse](./20220609115902)
