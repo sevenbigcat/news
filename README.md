@@ -1,3 +1,4 @@
+# [McDonald's replacement: 'Our customers won't notice'](./20220612175917)
 # [Retired U.S. naval officer warns of food crisis](./20220612115844)
 # [Steve Sax's son among 5 Marines killed in crash](./20220611235907)
 # [Ukraine, U.K. officials issue warning on Russia's weapons](./20220611175853)
