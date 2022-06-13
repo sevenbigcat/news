@@ -1,3 +1,4 @@
+# [At least 5 dead, 27 injured in weekend mass shootings](./20220613115908)
 # [Threatening move by Kim Jong Un reported by Seoul](./20220612235845)
 # [McDonald's replacement: 'Our customers won't notice'](./20220612175917)
 # [Retired U.S. naval officer warns of food crisis](./20220612115844)
