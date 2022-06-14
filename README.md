@@ -1,3 +1,4 @@
+# [Staffers, police prevent nightmare at summer camp](./20220614055837)
 # [Trump staff testifies: Giuliani 'was definitely intoxicated'](./20220613235843)
 # ['The Trump campaign didn't use the money for that'](./20220613175906)
 # [At least 5 dead, 27 injured in weekend mass shootings](./20220613115908)
