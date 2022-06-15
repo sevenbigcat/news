@@ -1,3 +1,4 @@
+# [New poll reveals stunning numbers on U.S. sentiment](./20220615175900)
 # [Cadet sues shipping company for not protecting her](./20220615115856)
 # [More than 100M Americans warned to stay indoors](./20220614175849)
 # [What's driving oil and gas prices higher](./20220614115902)
