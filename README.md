@@ -1,3 +1,4 @@
+# [$100K in student loan debt canceled, $15K refunded](./20220615235846)
 # [New poll reveals stunning numbers on U.S. sentiment](./20220615175900)
 # [Cadet sues shipping company for not protecting her](./20220615115856)
 # [More than 100M Americans warned to stay indoors](./20220614175849)
