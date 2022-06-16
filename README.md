@@ -1,3 +1,4 @@
+# ['I'm not frustrated, I'm done': GOP senator leaves gun talks](./20220616235841)
 # [Warning issued for Colorado River: 'Moment of reckoning'](./20220616115846)
 # [$100K in student loan debt canceled, $15K refunded](./20220615235846)
 # [New poll reveals stunning numbers on U.S. sentiment](./20220615175900)
