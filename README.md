@@ -1,3 +1,4 @@
+# [New poll is bad news for Biden, good news for Trump](./20220617115854)
 # ['I'm not frustrated, I'm done': GOP senator leaves gun talks](./20220616235841)
 # [Warning issued for Colorado River: 'Moment of reckoning'](./20220616115846)
 # [$100K in student loan debt canceled, $15K refunded](./20220615235846)
