@@ -1,3 +1,4 @@
+# [Bishop: School no longer Catholic after Pride flag](./20220617175844)
 # [New poll is bad news for Biden, good news for Trump](./20220617115854)
 # ['I'm not frustrated, I'm done': GOP senator leaves gun talks](./20220616235841)
 # [Warning issued for Colorado River: 'Moment of reckoning'](./20220616115846)
