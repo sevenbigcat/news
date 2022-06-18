@@ -1,3 +1,4 @@
+# [Trump faithful grasp for responses to Jan. 6 findings](./20220618115901)
 # [Thousands of U.S. flights grounded before weekend](./20220617235907)
 # [Bishop: School no longer Catholic after Pride flag](./20220617175844)
 # [New poll is bad news for Biden, good news for Trump](./20220617115854)
