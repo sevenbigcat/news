@@ -1,3 +1,4 @@
+# [Herschel Walker reacts to report of his having multiple kids](./20220618235914)
 # [Senate gun deal disappoints voters on both sides](./20220618175911)
 # [Trump faithful grasp for responses to Jan. 6 findings](./20220618115901)
 # [Thousands of U.S. flights grounded before weekend](./20220617235907)
