@@ -1,3 +1,4 @@
+# [Gun sellers' message to Americans: Man up](./20220619115900)
 # [Herschel Walker reacts to report of his having multiple kids](./20220618235914)
 # [Senate gun deal disappoints voters on both sides](./20220618175911)
 # [Trump faithful grasp for responses to Jan. 6 findings](./20220618115901)
