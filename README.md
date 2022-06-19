@@ -1,3 +1,4 @@
+# [Most in U.S. agree: Trump should be charged with crime](./20220619175908)
 # [Gun sellers' message to Americans: Man up](./20220619115900)
 # [Herschel Walker reacts to report of his having multiple kids](./20220618235914)
 # [Senate gun deal disappoints voters on both sides](./20220618175911)
