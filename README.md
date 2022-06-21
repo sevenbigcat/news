@@ -1,3 +1,4 @@
+# [Uvalde police response: Devastating new revelation](./20220621120158)
 # [At least 6 dead, 42 injured in weekend mass shootings](./20220621055855)
 # [Explosive found in car; 3 'sovereign citizens' arrested](./20220620235841)
 # [Biden says he's considering federal gasoline tax holiday](./20220620175851)
