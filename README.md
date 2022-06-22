@@ -1,3 +1,4 @@
+# [Here's who can't own a gun under new Senate bill](./20220622235850)
 # [American Airlines will no longer fly to these 4 cities](./20220622175935)
 # [Existence of new Trump tapes revealed by subpoena](./20220622115943)
 # ['We still have not ordered it. We're not going to order it'](./20220621175843)
