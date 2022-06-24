@@ -1,3 +1,4 @@
+# [Trump called Roe ruling 'bad for Republicans'](./20220624235851)
 # [SCOTUS overturns Roe v. Wade in landmark opinion](./20220624175901)
 # [DUI charge for husband of Nancy Pelosi](./20220624115857)
 # [Senate OKs landmark gun violence bill](./20220624055847)
