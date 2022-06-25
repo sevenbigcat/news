@@ -1,3 +1,4 @@
+# [Woman who brought down Roe v. Wade now eyes Calif.](./20220625115856)
 # [Trump called Roe ruling 'bad for Republicans'](./20220624235851)
 # [SCOTUS overturns Roe v. Wade in landmark opinion](./20220624175901)
 # [DUI charge for husband of Nancy Pelosi](./20220624115857)
