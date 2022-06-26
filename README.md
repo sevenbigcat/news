@@ -1,3 +1,4 @@
+# [Amid Jan. 6 panel revelations, Trump takes victory lap](./20220626235910)
 # [Before the pivotal ruling, a red wave](./20220626175857)
 # [Republican thanks Trump for 'victory for white life'](./20220626115900)
 # [Cruz's message to Garland after Roe is overturned](./20220625235857)
