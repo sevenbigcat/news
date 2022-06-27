@@ -1,3 +1,4 @@
+# [AOC: Justices lied under oath, should be impeached](./20220627115843)
 # [Amid Jan. 6 panel revelations, Trump takes victory lap](./20220626235910)
 # [Before the pivotal ruling, a red wave](./20220626175857)
 # [Republican thanks Trump for 'victory for white life'](./20220626115900)
