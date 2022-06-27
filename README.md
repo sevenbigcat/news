@@ -1,3 +1,4 @@
+# [New evidence prompts surprise Jan. 6 hearing](./20220627235855)
 # [Scenes of horror as Russia bombs shopping mall](./20220627175902)
 # [AOC: Justices lied under oath, should be impeached](./20220627115843)
 # [Amid Jan. 6 panel revelations, Trump takes victory lap](./20220626235910)
