@@ -1,3 +1,4 @@
+# [46 people found dead in abandoned trailer in Texas](./20220628115913)
 # [Official: At least 40 found dead in truck in San Antonio](./20220628055847)
 # [New evidence prompts surprise Jan. 6 hearing](./20220627235855)
 # [Scenes of horror as Russia bombs shopping mall](./20220627175902)
