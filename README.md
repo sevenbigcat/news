@@ -1,3 +1,4 @@
+# [Convicted sex offender, Epstein ally sentenced](./20220628235905)
 # [Supreme Court takes aim at separation of church, state](./20220628175853)
 # [46 people found dead in abandoned trailer in Texas](./20220628115913)
 # [Official: At least 40 found dead in truck in San Antonio](./20220628055847)
