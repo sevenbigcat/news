@@ -1,3 +1,4 @@
+# [Official: At least 40 found dead in truck in San Antonio](./20220628055847)
 # [New evidence prompts surprise Jan. 6 hearing](./20220627235855)
 # [Scenes of horror as Russia bombs shopping mall](./20220627175902)
 # [AOC: Justices lied under oath, should be impeached](./20220627115843)
