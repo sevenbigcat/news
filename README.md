@@ -1,3 +1,4 @@
+# [Trump changes his tune on Barr after Jan. 6 hearing](./20220629235846)
 # [A frightening look at what could come next in the U.S.](./20220629180949)
 # [Election deniers defeated in Colorado GOP primaries](./20220629115858)
 # [Pentagon responds to SCOTUS abortion ruling](./20220629055847)
