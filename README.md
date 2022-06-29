@@ -1,3 +1,4 @@
+# [Election deniers defeated in Colorado GOP primaries](./20220629115858)
 # [Pentagon responds to SCOTUS abortion ruling](./20220629055847)
 # [Convicted sex offender, Epstein ally sentenced](./20220628235905)
 # [Supreme Court takes aim at separation of church, state](./20220628175853)
