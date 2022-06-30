@@ -1,3 +1,4 @@
+# ['Worst version of COVID' will be dominant in U.S. by July](./20220630235845)
 # [A new Putin has emerged, resembling prewar image](./20220630180006)
 # [Trump changes his tune on Barr after Jan. 6 hearing](./20220629235846)
 # [A frightening look at what could come next in the U.S.](./20220629180949)
