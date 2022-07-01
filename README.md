@@ -1,3 +1,4 @@
+# ['Indefensible': Dems rip Biden for secret deal on GOP judge](./20220701055847)
 # ['Worst version of COVID' will be dominant in U.S. by July](./20220630235845)
 # [A new Putin has emerged, resembling prewar image](./20220630180006)
 # [Trump changes his tune on Barr after Jan. 6 hearing](./20220629235846)
