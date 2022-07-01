@@ -1,3 +1,4 @@
+# [New poll reveals big shift on abortion, women's rights](./20220701175849)
 # ['Huge mistake': Secret Biden-McConnell deal angers Dems](./20220701115859)
 # ['Indefensible': Dems rip Biden for secret deal on GOP judge](./20220701055847)
 # ['Worst version of COVID' will be dominant in U.S. by July](./20220630235845)
