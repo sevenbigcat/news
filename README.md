@@ -1,3 +1,4 @@
+# [America's hottest city faces climate change](./20220702115839)
 # [Teen attacked by shark in Fla. suffers devastating injuries](./20220702055908)
 # [New poll reveals big shift on abortion, women's rights](./20220701175849)
 # ['Huge mistake': Secret Biden-McConnell deal angers Dems](./20220701115859)
