@@ -1,3 +1,4 @@
+# ['I'm afraid': Justice Dept. braces for violent crime](./20220704175852)
 # ['I didn't see that': Experts pick apart Walker video](./20220704055856)
 # ['Stay tuned': Kinzinger teases more damning evidence](./20220703235837)
 # [Trump's 'intense anger' backed by evidence: Cheney](./20220703175851)
