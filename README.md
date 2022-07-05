@@ -1,3 +1,4 @@
+# [What man's online trail reveals after mass shooting](./20220705115859)
 # [Man, 22, in custody after 6 killed at July 4 parade](./20220705055841)
 # [Person of interest ID'd after 6 killed in parade shooting](./20220704235841)
 # ['I'm afraid': Justice Dept. braces for violent crime](./20220704175852)
