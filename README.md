@@ -1,3 +1,4 @@
+# [Harris could break a record. Dems wish she wouldn't.](./20220705235903)
 # [Person of interest in mass shooting left violent online trail](./20220705175844)
 # [What man's online trail reveals after mass shooting](./20220705115859)
 # [Man, 22, in custody after 6 killed at July 4 parade](./20220705055841)
