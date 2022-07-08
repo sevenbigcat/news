@@ -1,3 +1,4 @@
+# [Ex-Japanese PM Shinzo Abe assassinated during speech](./20220708115906)
 # [Ex-Japanese PM Shinzo Abe shot in chest during speech](./20220708055850)
 # [New Raiders hire is one for the NFL history books](./20220707235845)
 # [Brittney Griner pleads guilty to drug charges in Russia](./20220707175900)
