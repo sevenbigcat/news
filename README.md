@@ -1,3 +1,4 @@
+# [The issue cropping up at pools across the U.S.](./20220709055849)
 # [Biden signs executive order on abortion rights](./20220708235842)
 # [Biden signs executive order on abortion, contraception](./20220708175840)
 # [Ex-Japanese PM Shinzo Abe assassinated during speech](./20220708115906)
