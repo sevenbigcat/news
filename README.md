@@ -1,3 +1,4 @@
+# [Divisions over Trump flair at state GOP convention](./20220711055853)
 # [Heated disputes over Trump roil state GOP convention](./20220710235902)
 # [Retired general in hot water over reply to Jill Biden tweet](./20220710175859)
 # [Fallout for restaurant over Kavanaugh dinner response](./20220709235903)
