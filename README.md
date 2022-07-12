@@ -1,3 +1,4 @@
+# [Officials reveal culprit behind latest COVID surge in U.S.](./20220712235853)
 # [Ukraine's demands now clash with U.S. concerns](./20220712175854)
 # [Surreal scene: Here lies what was Lake Mead](./20220711235854)
 # [Ex-Uber executive: 'We had actually sold people a lie'](./20220711175904)
