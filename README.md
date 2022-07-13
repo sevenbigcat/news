@@ -1,3 +1,4 @@
+# [Justice Barrett's 'presence and her vote speak volumes'](./20220713235900)
 # [A historic first for women within the Catholic Church](./20220713175855)
 # [Former Oath Keeper offers dire warning to the nation](./20220713055844)
 # [Officials reveal culprit behind latest COVID surge in U.S.](./20220712235853)
