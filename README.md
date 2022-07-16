@@ -1,3 +1,4 @@
+# [6 people die after freak storm causes highway pileup](./20220716115856)
 # [Ivana Trump's cause of death released by examiner](./20220716055852)
 # [Report: Martin could face 50 years in alleged incest case](./20220715235856)
 # [AOC addresses 'disgusting' incident on Capitol steps](./20220715175859)
