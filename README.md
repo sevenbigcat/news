@@ -1,3 +1,4 @@
+# [Vaccine study confirms reports about menstruation](./20220717175845)
 # [GOP candidates following Trump's lead after loss](./20220717055853)
 # [Twitter: 'We're in a bad place,' legendary investor](./20220716235853)
 # [6 people die after freak storm causes highway pileup](./20220716115856)
