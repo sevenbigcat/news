@@ -1,3 +1,4 @@
+# [Armed civilian kills gunman; 3 dead in mall shooting: Chief](./20220718055851)
 # ['This is an existential threat to humanity': Sanders](./20220717235839)
 # [Vaccine study confirms reports about menstruation](./20220717175845)
 # [GOP candidates following Trump's lead after loss](./20220717055853)
