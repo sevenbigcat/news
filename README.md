@@ -1,3 +1,4 @@
+# [The major difference in the newest wave of COVID](./20220718235849)
 # ['Can't just kind of cry wolf': New COVID surge is different](./20220718175851)
 # [Armed civilian kills gunman; 3 dead in mall shooting: Chief](./20220718055851)
 # ['This is an existential threat to humanity': Sanders](./20220717235839)
