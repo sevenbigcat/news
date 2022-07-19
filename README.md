@@ -1,3 +1,4 @@
+# [AOC, other House Democrats arrested at protest](./20220719235858)
 # ['They want to eliminate us': Angry Calif. truck drivers](./20220719175847)
 # [Highly infectious, deadly virus identified in Ghana](./20220719115912)
 # [The major difference in the newest wave of COVID](./20220718235849)
