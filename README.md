@@ -1,3 +1,4 @@
+# [Harvard study makes clear what motivated Jan. 6 rioters](./20220721055845)
 # ['They are no more': Ukrainian first lady's stinging address](./20220720235925)
 # ['She's a child and the child cannot deliver a child'](./20220720055918)
 # [AOC, other House Democrats arrested at protest](./20220719235858)
