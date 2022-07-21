@@ -1,3 +1,4 @@
+# [Russia lashes out at 'drug-addicted' U.S. over Griner](./20220721175901)
 # [Senators reach deal on 1887 law at center of Jan. 6 plot](./20220721115853)
 # [Harvard study makes clear what motivated Jan. 6 rioters](./20220721055845)
 # ['They are no more': Ukrainian first lady's stinging address](./20220720235925)
