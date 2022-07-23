@@ -1,3 +1,4 @@
+# [6 shot, 1 fatally, in Seattle-area shooting](./20220723175913)
 # [WH delivers grim message on the future of COVID-19](./20220722235855)
 # [A tale of 2 presidents with COVID: Some big differences](./20220722175901)
 # [Cheney's sobering statement at the Jan. 6 hearing](./20220722055848)
