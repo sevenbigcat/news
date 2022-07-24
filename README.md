@@ -1,3 +1,4 @@
+# [The wealthy are hiding 'staggering' amounts of cash](./20220724175844)
 # [While camping, parents and 6-year-old girl are fatally shot](./20220724055855)
 # [6-year-old girl, her parents fatally shot at campground](./20220723235855)
 # [6 shot, 1 fatally, in Seattle-area shooting](./20220723175913)
