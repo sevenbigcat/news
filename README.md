@@ -1,3 +1,4 @@
+# [Conservative media doubles down as evidence piles up](./20220725175844)
 # [In divided America, there's one thing voters agree on](./20220725055945)
 # [Massive Greenland ice melt: 18 billion tons in 3 days](./20220724235855)
 # [The wealthy are hiding 'staggering' amounts of cash](./20220724175844)
