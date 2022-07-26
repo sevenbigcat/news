@@ -1,3 +1,4 @@
+# [Police force resigns after Black town manager hired](./20220726060225)
 # [Police: Woman opened fire in Dallas airport; cop shot her](./20220725235852)
 # [Conservative media doubles down as evidence piles up](./20220725175844)
 # [In divided America, there's one thing voters agree on](./20220725055945)
