@@ -1,3 +1,4 @@
+# [Infowars host Alex Jones admonished by judge at trial](./20220726235846)
 # [Estonia's prime minister has stark message for the West](./20220726115850)
 # [Police force resigns after Black town manager hired](./20220726060225)
 # [Police: Woman opened fire in Dallas airport; cop shot her](./20220725235852)
