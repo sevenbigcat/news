@@ -1,3 +1,4 @@
+# [Trump: 'I have notified CNN of my intent to file a lawsuit'](./20220727235858)
 # [One America News faces a 'death blow'](./20220727175848)
 # [More remains found at Lake Mead amid historic low levels](./20220727115913)
 # [Infowars host Alex Jones admonished by judge at trial](./20220726235846)
