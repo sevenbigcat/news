@@ -1,3 +1,4 @@
+# [Las Vegas reports less than 50 days left of clean water](./20220729235851)
 # [14 years in Russian jail for medical weed in luggage](./20220729175844)
 # [SCOTUS justice responds to Prince Harry with public shot](./20220729055849)
 # [Shock estimate for number of Russian casualties in war](./20220728175849)
