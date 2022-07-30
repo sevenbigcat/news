@@ -1,3 +1,4 @@
+# [Illinois ticket holder wins $1.3B from Mega Millions](./20220730175904)
 # [Mega Millions drawing: Are you a billionaire?](./20220730115903)
 # ['Why are we here?': Fed up and leaving California](./20220730055854)
 # [Las Vegas reports less than 50 days left of clean water](./20220729235851)
