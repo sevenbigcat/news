@@ -1,3 +1,4 @@
+# ['The golfers and the former president are cowards'](./20220730235850)
 # [Illinois ticket holder wins $1.3B from Mega Millions](./20220730175904)
 # [Mega Millions drawing: Are you a billionaire?](./20220730115903)
 # ['Why are we here?': Fed up and leaving California](./20220730055854)
