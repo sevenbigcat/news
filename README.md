@@ -1,3 +1,4 @@
+# [Assault weapons ban vote: 7 reps break with their party](./20220731055905)
 # ['The golfers and the former president are cowards'](./20220730235850)
 # [Illinois ticket holder wins $1.3B from Mega Millions](./20220730175904)
 # [Mega Millions drawing: Are you a billionaire?](./20220730115903)
