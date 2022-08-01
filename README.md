@@ -1,3 +1,4 @@
+# [California wildfire becomes state's largest — by far](./20220801062037)
 # [UFC chief: Fighter lost 'chunk' of forehead. Fighter: Nope.](./20220731235858)
 # [Biden turns up the insults on Donald Trump](./20220731115849)
 # [Assault weapons ban vote: 7 reps break with their party](./20220731055905)
