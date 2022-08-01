@@ -1,3 +1,4 @@
+# [Sources: U.S. operation kills al-Qaida leader al-Zawahri](./20220801235848)
 # ['Absolute protection': Graham fights Ga. subpoena](./20220801175859)
 # [For U.S. solar industry, Manchin's shift is huge](./20220801115905)
 # [California wildfire becomes state's largest — by far](./20220801062037)
