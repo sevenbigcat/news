@@ -1,3 +1,4 @@
+# [Jones trial takes dramatic turn with stunning disclosure](./20220803235847)
 # [So-called witch hunt finally comes for Trump](./20220802235903)
 # ['The Biden administration ... is directly responsible'](./20220802175903)
 # [Arizona races put Trump's election lies to the test](./20220802115904)
