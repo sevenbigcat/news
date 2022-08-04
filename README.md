@@ -1,3 +1,4 @@
+# [DeSantis suspends state attorney for ignoring cases](./20220804175843)
 # [Only 1 senator votes no on NATO entry for 2 countries](./20220804055847)
 # [Jones trial takes dramatic turn with stunning disclosure](./20220803235847)
 # [So-called witch hunt finally comes for Trump](./20220802235903)
