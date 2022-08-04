@@ -1,3 +1,4 @@
+# ['He's a coward': Dick Cheney torches Trump in new ad](./20220804235859)
 # [DeSantis suspends state attorney for ignoring cases](./20220804175843)
 # [Only 1 senator votes no on NATO entry for 2 countries](./20220804055847)
 # [Jones trial takes dramatic turn with stunning disclosure](./20220803235847)
