@@ -1,3 +1,4 @@
+# [1 doctor's 3-word response to job offer in red state](./20220807175854)
 # ['All the data points currently align with a cover-up'](./20220807115844)
 # [Heche rep gives update on her condition after crash](./20220806235855)
 # ['Democrats have received extremely good news'](./20220806175854)
