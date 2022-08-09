@@ -1,3 +1,4 @@
+# [Republicans furious after FBI searches Trump's home](./20220809115850)
 # [Police sued for failing to see 'life-threatening' situation](./20220808175911)
 # [3 airports top the list as mass flight cancellations continue](./20220808115858)
 # [1 doctor's 3-word response to job offer in red state](./20220807175854)
