@@ -1,3 +1,4 @@
+# [Only 1 big-name Republican sided with DOJ on Trump raid](./20220810175906)
 # [Pence has words for Garland over Mar-a-Lago search](./20220809235852)
 # ['If it was in that river, it died,' California fisherman laments](./20220809175854)
 # [Republicans furious after FBI searches Trump's home](./20220809115850)
