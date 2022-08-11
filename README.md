@@ -1,3 +1,4 @@
+# [Ky. community devastated by heroic teen's death](./20220811175849)
 # [FBI head denounces threats over Mar-a-Lago search](./20220811055907)
 # [Only 1 big-name Republican sided with DOJ on Trump raid](./20220810175906)
 # [Pence has words for Garland over Mar-a-Lago search](./20220809235852)
