@@ -1,3 +1,4 @@
+# [2 dead as heaviest rainfall in 10 years floods Vegas strip](./20220815055912)
 # [Revelation paints picture as to why FBI raided Mar-a-Lago](./20220814235849)
 # ['Off the record, [Biden's] not running again': Rep. Maloney](./20220814175844)
 # [Sources: With documents, Trump was slapdash](./20220814115852)
