@@ -1,3 +1,4 @@
+# [Ex-Trump official pledged to publish classified documents](./20220818055744)
 # [Russian troops could soon be haunted by 'rasputitsa'](./20220817235723)
 # [Trump's angry words spur warnings of real violence](./20220817175722)
 # ['I don't feel good about being the only survivor'](./20220817060117)
