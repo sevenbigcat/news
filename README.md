@@ -1,3 +1,4 @@
+# [18 ex-Trump officials refute his 'standing order' claim](./20220819235716)
 # [Cheney's defeat comes with a major silver lining](./20220819115719)
 # [Poll reveals what Republicans think of Mar-a-Lago raid](./20220818235819)
 # [Another Trump mystery after FBI raids Mar-a-Lago](./20220818175911)
