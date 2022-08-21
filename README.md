@@ -1,3 +1,4 @@
+# ['It's too offensive': Florida Democrats see red](./20220821175719)
 # [13-year prison sentence handed down to billionaire](./20220820235718)
 # [Polls show a possible surprise in the midterm elections](./20220820175719)
 # [2 people responsible for Hutchins's death: Baldwin](./20220820055712)
