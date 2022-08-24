@@ -1,3 +1,4 @@
+# [DOJ releases memo detailing decision not to charge Trump](./20220824235728)
 # [Democrat beats Republican in race that could be a signal](./20220824060142)
 # [2 words Texas gov. won't say despite '1,000-year storm'](./20220823235717)
 # [Surprising agreement on gun issue in new poll results](./20220823175729)
