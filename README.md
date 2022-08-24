@@ -1,3 +1,4 @@
+# [Democrat beats Republican in race that could be a signal](./20220824060142)
 # [2 words Texas gov. won't say despite '1,000-year storm'](./20220823235717)
 # [Surprising agreement on gun issue in new poll results](./20220823175729)
 # [Trump legal team slams 'shockingly aggressive move'](./20220823115726)
