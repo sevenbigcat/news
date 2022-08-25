@@ -1,3 +1,4 @@
+# [Ex-football star's woes hurt GOP chance of taking Senate](./20220825175720)
 # [Biden: 'I didn't have any advance notice — none, zero'](./20220825115726)
 # [DOJ releases memo detailing decision not to charge Trump](./20220824235728)
 # [Democrat beats Republican in race that could be a signal](./20220824060142)
