@@ -1,3 +1,4 @@
+# [Republicans quieter after redacted affidavit's release](./20220827175713)
 # [Nightmare for La. woman carrying nonviable fetus](./20220827115726)
 # [Woman whose fetus has no skull denied abortion](./20220826235714)
 # [WH calls out GOP lawmakers who got loans forgiven](./20220826175705)
