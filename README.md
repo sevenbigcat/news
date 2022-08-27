@@ -1,3 +1,4 @@
+# [This may be a possible tell for Trump's political future](./20220827235715)
 # [Republicans quieter after redacted affidavit's release](./20220827175713)
 # [Nightmare for La. woman carrying nonviable fetus](./20220827115726)
 # [Woman whose fetus has no skull denied abortion](./20220826235714)
