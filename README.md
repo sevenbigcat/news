@@ -1,3 +1,4 @@
+# [Deion Sanders: 'We can't use toilets. We don't have water.'](./20220831115726)
 # [New details on nurse charged with killing 6 in L.A. crash](./20220831062358)
 # [Google bans Trump social network due to violent posts](./20220830235720)
 # [Death in Navy SEAL training exposes a shocking culture](./20220830175713)
