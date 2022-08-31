@@ -1,3 +1,4 @@
+# [New details on nurse charged with killing 6 in L.A. crash](./20220831062358)
 # [Google bans Trump social network due to violent posts](./20220830235720)
 # [Death in Navy SEAL training exposes a shocking culture](./20220830175713)
 # [Ukrainian military hits Russia with 'MacGyvered' weapons](./20220830115734)
