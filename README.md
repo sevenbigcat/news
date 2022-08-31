@@ -1,3 +1,4 @@
+# [West Point has KKK plaque mounted above entrance](./20220831175745)
 # [Deion Sanders: 'We can't use toilets. We don't have water.'](./20220831115726)
 # [New details on nurse charged with killing 6 in L.A. crash](./20220831062358)
 # [Google bans Trump social network due to violent posts](./20220830235720)
