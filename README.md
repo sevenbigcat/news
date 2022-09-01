@@ -1,3 +1,4 @@
+# [The counteroffensive Trump didn't seem to see coming](./20220901175721)
 # [Alaska special election: Palin loses, Democrats flip seat](./20220901060516)
 # [West Point has KKK plaque mounted above entrance](./20220831175745)
 # [Deion Sanders: 'We can't use toilets. We don't have water.'](./20220831115726)
