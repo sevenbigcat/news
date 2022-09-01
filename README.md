@@ -1,3 +1,4 @@
+# [N.D. community shaken after farmer among 4 dead](./20220901235736)
 # [The counteroffensive Trump didn't seem to see coming](./20220901175721)
 # [Alaska special election: Palin loses, Democrats flip seat](./20220901060516)
 # [West Point has KKK plaque mounted above entrance](./20220831175745)
