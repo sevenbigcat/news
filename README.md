@@ -1,3 +1,4 @@
+# [Election rule raises dilemma for DOJ on Trump inquiries](./20220906115713)
 # [Jarring new detail in Memphis jogger abduction](./20220906062209)
 # [Sense of desperation looms over Colorado River](./20220905235726)
 # [Trump blasts Fox News, makes appeal to CNN](./20220905175710)
