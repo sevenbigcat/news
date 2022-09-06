@@ -1,3 +1,4 @@
+# [Jarring new detail in Memphis jogger abduction](./20220906062209)
 # [Sense of desperation looms over Colorado River](./20220905235726)
 # [Trump blasts Fox News, makes appeal to CNN](./20220905175710)
 # [DNA from Memphis jogger's sandals leads to arrest](./20220905115722)
