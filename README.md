@@ -1,3 +1,4 @@
+# ['This ruling is laughably bad': Experts express alarm](./20220906175730)
 # [Election rule raises dilemma for DOJ on Trump inquiries](./20220906115713)
 # [Jarring new detail in Memphis jogger abduction](./20220906062209)
 # [Sense of desperation looms over Colorado River](./20220905235726)
