@@ -1,3 +1,4 @@
+# [If virus evolves too much, 'all bets are off,' Fauci says](./20220907115738)
 # [Report: Trump ally Bannon to surrender to prosecutors](./20220907062002)
 # ['This ruling is laughably bad': Experts express alarm](./20220906175730)
 # [Election rule raises dilemma for DOJ on Trump inquiries](./20220906115713)
