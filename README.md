@@ -1,3 +1,4 @@
+# ['2 deaths' in the U.S. are 'under investigation': Official](./20220912175744)
 # [What some lawyers joke MAGA actually stands for](./20220911235822)
 # [VP Harris shares what she'd do if Biden seeks reelection](./20220911175712)
 # [Poignant moment for royal family after queen's death](./20220911115721)
