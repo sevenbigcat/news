@@ -1,3 +1,4 @@
+# [GOP governors send scathing letter to the White House](./20220914175810)
 # [U.S. erroneously awarded $1.3B to foreign applicants](./20220914115728)
 # [Trump's election defense fund? It never existed.](./20220914061811)
 # [Charles inherits untold riches and passes off own empire](./20220913235915)
