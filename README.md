@@ -1,3 +1,4 @@
+# [Trump's election defense fund? It never existed.](./20220914061811)
 # [Charles inherits untold riches and passes off own empire](./20220913235915)
 # [King Charles inherits untold riches, passes off his empire](./20220913175757)
 # [Polling warning signs are flashing again for Dems](./20220912235903)
