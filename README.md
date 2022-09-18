@@ -1,3 +1,4 @@
+# [Tables have turned: GOP on defense over social issues](./20220918175728)
 # ['Be afraid': Experts warn of 2 threats to U.S. democracy](./20220918115730)
 # [Meghan Markle, Prince Harry barred from palace reception](./20220917175713)
 # [State braces for monster storm and major floods](./20220916235915)
