@@ -1,3 +1,4 @@
+# [Ginni Thomas strikes deal with Jan. 6 committee](./20220922061657)
 # [Putin's 'partial mobilization' unleashes chaos in Russia](./20220921235951)
 # ['Red herring' allegation in DOJ's latest Trump filing](./20220921175859)
 # [Putin orders partial mobilization, threatens West](./20220921115709)
