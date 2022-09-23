@@ -1,3 +1,4 @@
+# [New evidence in Crumbley case shines light on school](./20220923175920)
 # [CNN journalist pulls out of interview after demand](./20220923115711)
 # [COVID brain finding could affect millions in U.S.](./20220922175814)
 # [Ginni Thomas strikes deal with Jan. 6 committee](./20220922061657)
