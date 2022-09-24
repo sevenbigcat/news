@@ -1,3 +1,4 @@
+# [Al Gore calls on Biden to jettison Trump appointee](./20220924060309)
 # [Guilty: Jury convicts QAnon rioter on all counts](./20220923235952)
 # [New evidence in Crumbley case shines light on school](./20220923175920)
 # [CNN journalist pulls out of interview after demand](./20220923115711)
