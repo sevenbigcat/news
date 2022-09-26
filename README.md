@@ -1,3 +1,4 @@
+# [GOP senator's admission on seized Trump documents](./20220926061857)
 # [Startling admission from Liz Cheney about midterms](./20220925235920)
 # ['If Russia crosses this line...': U.S. issues warning](./20220925175713)
 # ['Cornered Putin': Experts sound alarms on Russian war](./20220925060139)
