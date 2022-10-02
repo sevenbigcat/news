@@ -1,3 +1,4 @@
+# ['They were actually trying to save themselves': Witness](./20221002235944)
 # [They wanted homes near the coast. Now it's costing them.](./20221002175751)
 # [174 people killed in chaos at Indonesian soccer match](./20221002115717)
 # [Putin suffers humiliating defeat in annexed city](./20221001235956)
