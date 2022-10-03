@@ -1,3 +1,4 @@
+# [SCOTUS deals blow to MyPillow CEO Mike Lindell](./20221003180359)
 # ['I can still hear the voices screaming for help': Witness](./20221003060440)
 # ['They were actually trying to save themselves': Witness](./20221002235944)
 # [They wanted homes near the coast. Now it's costing them.](./20221002175751)
