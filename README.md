@@ -1,3 +1,4 @@
+# [Map reveals breadth of Russia's military losses](./20221004235955)
 # [Putin is now realizing what U.S. concluded years ago](./20221004180441)
 # [Walker denies abortion claim, then is attacked by son](./20221004115713)
 # [SCOTUS deals blow to MyPillow CEO Mike Lindell](./20221003180359)
