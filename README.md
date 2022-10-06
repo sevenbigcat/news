@@ -1,3 +1,4 @@
+# [U.S. admonishes Ukraine over assassination in Russia](./20221006000020)
 # [U.S. starts fiscal year with record $31 trillion in debt](./20221005180544)
 # [S. Korea missile crash during drill with U.S. panics city](./20221005115722)
 # [Map reveals breadth of Russia's military losses](./20221004235955)
